@@ -6,7 +6,7 @@
 >yatato hyapi kaunteya puruṣhasya vipaśhchitaḥ  
 indriyāṇi pramāthīni haranti prasabhaṁ manaḥ
 
-The turbulent senses can take away a wise men mind, so arjuna use your power within you to master your senses. 
+The turbulent senses of the even the w can take away a wise men mind, so arjuna use your power within you to master your senses. 
 
 when the senses become pramathini (out of control) it make you weak not allow you to sleep. How you say you have mastered your senses ? 
 1. when the object is not there in front of you, you dont grave for it.
@@ -20,6 +20,6 @@ first withdraw from the sense object, which will help you not to grave for it.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI3NjI2Njk4MSw0NjA0NTY5MzYsLTE4OD
-c3NDkyODEsLTEyMzEwMTYyMTddfQ==
+eyJoaXN0b3J5IjpbLTY5NTQyMDk5MywxMjc2MjY2OTgxLDQ2MD
+Q1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAxNjIxN119
 -->
