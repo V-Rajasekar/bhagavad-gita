@@ -22,14 +22,14 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 **2. Attempting (Trying)** Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
 **3. Eagerness (Enthuisasium)** Dont put effort in moral way. Put your best effort very very cheerfully.
 **4. Watchfulness (Being cautious)**  Cautious that you dont over excert and under excert, your effort should be propotion of your capacity. Also cautious about/aware of various block that may come and pull you away from the path.
-**5. Perseverance (consistence)**  only consistent effort can give 
+**5. Perseverance (consistence), tenacity refusing to accept failure**  only consistent effort can give you the success
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY1Mzg3Njg3NiwtMzY2NjA2MDY0LDEyNz
-YyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC0xMjMxMDE2
-MjE3XX0=
+eyJoaXN0b3J5IjpbLTEwNjA5MjA0MDgsLTM2NjYwNjA2NCwxMj
+c2MjY2OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAx
+NjIxN119
 -->
