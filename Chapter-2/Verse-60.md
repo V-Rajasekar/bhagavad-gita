@@ -17,7 +17,7 @@ when the senses become pramathini (out of control) it make you weak not allow yo
 first withdraw from the sense object, which will help you not to grave for it.  
 vipashchithah - one who aware of his mind. But here one is striving in that path of becoming stitaprakya (one who has mastered his senses). 
 
-**yatataha** - true effort. There are 5 dimensions to this word. 
+**Yatataha** - true effort. There are 5 dimensions to this word. 
 **1. Striving excertion**. - In anything you want to achieve in life is the first one is Hardwork the capacaity to excertion from own. 
 **2. Attempting (Trying)**  Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
 **3. Eagerness (Enthuisasium)** Dont put effort in moral way. Put your best effort very very cheerfully.
@@ -29,7 +29,7 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMzA2ODY4MTgsLTM2NjYwNjA2NCwxMj
-c2MjY2OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAx
-NjIxN119
+eyJoaXN0b3J5IjpbNzIxNzQ2MzY2LC0xMjMwNjg2ODE4LC0zNj
+Y2MDYwNjQsMTI3NjI2Njk4MSw0NjA0NTY5MzYsLTE4ODc3NDky
+ODEsLTEyMzEwMTYyMTddfQ==
 -->
