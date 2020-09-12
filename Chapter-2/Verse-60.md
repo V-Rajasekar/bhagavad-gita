@@ -18,8 +18,8 @@ first withdraw from the sense object, which will help you not to grave for it.
 vipashchithah - one who aware of his mind. But here one is striving in that path of becoming stitaprakya (one who has mastered his senses). 
 
 **yatataha** - true effort. There are 5 dimensions to this word. 
-**1. Striving excertion** - In anything you want to achieve in life is the first one is Hardwork the capacaity to excertion from own. 
-**2. Attempting (Trying)** Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
+**1. Striving excertion**. - In anything you want to achieve in life is the first one is Hardwork the capacaity to excertion from own. 
+**2. Attempting (Trying)**.  Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
 **3. Eagerness (Enthuisasium)** Dont put effort in moral way. Put your best effort very very cheerfully.
 **4. Watchfulness (Being cautious)**  Cautious that you dont over excert and under excert, your effort should be propotion of your capacity. Also cautious about/aware of various block that may come and pull you away from the path.
 **5. Perseverance (consistence), tenacity refusing to accept failure**  only consistent effort can give you the success
@@ -29,7 +29,7 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNjA5MjA0MDgsLTM2NjYwNjA2NCwxMj
+eyJoaXN0b3J5IjpbLTE1NDY1MzUxNDgsLTM2NjYwNjA2NCwxMj
 c2MjY2OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAx
 NjIxN119
 -->
