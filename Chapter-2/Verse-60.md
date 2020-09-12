@@ -6,10 +6,11 @@
 >yatato hyapi kaunteya puruṣhasya vipaśhchitaḥ  
 indriyāṇi pramāthīni haranti prasabhaṁ manaḥ
 
+The turbulent sense
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAyNTAwNTQ3LC0xMjMxMDE2MjE3XX0=
+eyJoaXN0b3J5IjpbMjA3OTI2ODAxLC0xMjMxMDE2MjE3XX0=
 -->
