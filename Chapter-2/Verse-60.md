@@ -16,14 +16,16 @@ when the senses become pramathini (out of control) it make you weak not allow yo
 
 first withdraw from the sense object, which will help you not to grave for it.  
 vipashchithah - one who aware of his mind. But here one is striving in that path of becoming stitaprakya (one who has mastered his senses). 
-yata
+
+yatataha - true effort. There are 5 dimensions to this word. 
+1. Striving excertion - Hardwork the capacaity to excert
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIyNzEzMzA3OCwtMzY2NjA2MDY0LDEyNz
+eyJoaXN0b3J5IjpbMTIwMDE2NDQ0MywtMzY2NjA2MDY0LDEyNz
 YyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC0xMjMxMDE2
 MjE3XX0=
 -->
