@@ -19,14 +19,14 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 **yatataha** - true effort. There are 5 dimensions to this word. 
 **1. Striving excertion** - In anything you want to achieve in life is the first one is Hardwork the capacaity to excertion from own. 
-**2. Attempting (Trying)** Is your effort is casual ? It should be best Your effort 
+**2. Attempting (Trying)** Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI3Njc1OTM1NSwtMzY2NjA2MDY0LDEyNz
-YyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC0xMjMxMDE2
-MjE3XX0=
+eyJoaXN0b3J5IjpbMjE3NzQyNjAwLC0zNjY2MDYwNjQsMTI3Nj
+I2Njk4MSw0NjA0NTY5MzYsLTE4ODc3NDkyODEsLTEyMzEwMTYy
+MTddfQ==
 -->
