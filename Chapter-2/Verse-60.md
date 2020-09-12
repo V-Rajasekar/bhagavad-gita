@@ -7,13 +7,15 @@
 indriyāṇi pramāthīni haranti prasabhaṁ manaḥ
 
 The turbulent senses can take away a wise men. when the senses become pramathini (out of control) it make you weak not allow you to sleep. How you say you have mastered your senses ? 
-1. when the object is not there
+1. when the object is not there in front of you, you dont grave for it.
+2. when your experiencing the sense object, you are enjoying it but the moment you need to stop you have the capacity to stop.
+3. After the sense contact is  
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTM2MTgyMzk5LC0xODg3NzQ5MjgxLC0xMj
-MxMDE2MjE3XX0=
+eyJoaXN0b3J5IjpbMTg5NDcwMDA2NiwtMTg4Nzc0OTI4MSwtMT
+IzMTAxNjIxN119
 -->
