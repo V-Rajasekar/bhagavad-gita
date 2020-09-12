@@ -21,14 +21,14 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 **1. Striving excertion** - In anything you want to achieve in life is the first one is Hardwork the capacaity to excertion from own. 
 **2. Attempting (Trying)** Is your effort is casual ? It should be best Your effort. what is the price your going to pay ? 
 **3. Eagerness (Enthuisasium)** Dont put effort in moral way. Put your best effort very very cheerfully.
-4. 
+**4. Watchfulness (Being cautious)**  Cautious that you dont over exert and under ex
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMDQ4MzIzMjIsLTM2NjYwNjA2NCwxMj
-c2MjY2OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAx
-NjIxN119
+eyJoaXN0b3J5IjpbNTU5ODE4NDAwLC0zNjY2MDYwNjQsMTI3Nj
+I2Njk4MSw0NjA0NTY5MzYsLTE4ODc3NDkyODEsLTEyMzEwMTYy
+MTddfQ==
 -->
