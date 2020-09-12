@@ -15,14 +15,15 @@ when the senses become pramathini (out of control) it make you weak not allow yo
 3. After the sense contact is over you dont linger with it.
 
 first withdraw from the sense object, which will help you not to grave for it.  
-vipashchithah - one who aware of his mind. But here one is striving in that path of becoming stitap
+vipashchithah - one who aware of his mind. But here one is striving in that path of becoming stitaprakya (one who has mastered his senses). 
+yata
 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkxMTE4MzMyMCwtMzY2NjA2MDY0LDEyNz
+eyJoaXN0b3J5IjpbLTIyNzEzMzA3OCwtMzY2NjA2MDY0LDEyNz
 YyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC0xMjMxMDE2
 MjE3XX0=
 -->
