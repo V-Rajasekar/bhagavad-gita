@@ -27,13 +27,13 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 **Vishwamithra** a great sage. He tapped the Gayathri manthra in raw form and converted it to sound vibration which can be useful to mankind. 
 
-**Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a Brahma 
+**Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a Brahma rishi was tremendous. He continued doing thapas repeatedly after loosing his power by  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk3ODU5MjE5MiwtMTYyMTI3MzI4OCwtMT
+eyJoaXN0b3J5IjpbMTI0NDEyODgwMiwtMTYyMTI3MzI4OCwtMT
 E2MDUwMTczMCwxMTY1NDM5ODk4LDcyMTc0NjM2NiwtMTIzMDY4
 NjgxOCwtMzY2NjA2MDY0LDEyNzYyNjY5ODEsNDYwNDU2OTM2LC
 0xODg3NzQ5MjgxLC0xMjMxMDE2MjE3XX0=
