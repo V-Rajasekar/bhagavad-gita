@@ -25,14 +25,14 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 **5. Perseverance (consistence), tenacity refusing to accept failure**  only consistent effort can give you the success
 
 
-**Vishwamithra** a great saga. He tapped the Gayathri manthra in raw form and
+**Vishwamithra** a great saint. He tapped the Gayathri manthra in raw form and converted it to sound vibration which can be useful to mankind. 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEyNDUzMzgxMSwtMTE2MDUwMTczMCwxMT
-Y1NDM5ODk4LDcyMTc0NjM2NiwtMTIzMDY4NjgxOCwtMzY2NjA2
-MDY0LDEyNzYyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC
-0xMjMxMDE2MjE3XX0=
+eyJoaXN0b3J5IjpbLTE2MjEyNzMyODgsLTExNjA1MDE3MzAsMT
+E2NTQzOTg5OCw3MjE3NDYzNjYsLTEyMzA2ODY4MTgsLTM2NjYw
+NjA2NCwxMjc2MjY2OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MS
+wtMTIzMTAxNjIxN119
 -->
