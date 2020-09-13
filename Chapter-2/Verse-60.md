@@ -29,12 +29,15 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 **Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a **Brahma rishi** was tremendous. He continued doing thapas repeatedly after loosing his power by got defeated by Kamathenu army, Guru Vasista, sending king trishula with his body to heaven, and then by helping a boy to protect him from fire.  fell for Menaga, cursing Ramba.
 
+You have even a 1% of perservance, tenacity you can achieve all the things yo
+
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYzMjc4OTE3LC00NzE1MjMyMjAsLTE2Mj
-EyNzMyODgsLTExNjA1MDE3MzAsMTE2NTQzOTg5OCw3MjE3NDYz
-NjYsLTEyMzA2ODY4MTgsLTM2NjYwNjA2NCwxMjc2MjY2OTgxLD
-Q2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAxNjIxN119
+eyJoaXN0b3J5IjpbLTgxNDQwMTA1MCwtNDcxNTIzMjIwLC0xNj
+IxMjczMjg4LC0xMTYwNTAxNzMwLDExNjU0Mzk4OTgsNzIxNzQ2
+MzY2LC0xMjMwNjg2ODE4LC0zNjY2MDYwNjQsMTI3NjI2Njk4MS
+w0NjA0NTY5MzYsLTE4ODc3NDkyODEsLTEyMzEwMTYyMTddfQ==
+
 -->
