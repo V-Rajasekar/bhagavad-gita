@@ -25,13 +25,15 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 **5. Perseverance (consistence), tenacity refusing to accept failure**  only consistent effort can give you the success
 
 
-**Vishwamithra** a great sage.. He tapped the Gayathri manthra in raw form and converted it to sound vibration which can be useful to mankind. 
+**Vishwamithra** a great sage. He tapped the Gayathri manthra in raw form and converted it to sound vibration which can be useful to mankind. 
+
+**Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a Brahma 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUwNDg4MjMyOSwtMTYyMTI3MzI4OCwtMT
+eyJoaXN0b3J5IjpbLTk3ODU5MjE5MiwtMTYyMTI3MzI4OCwtMT
 E2MDUwMTczMCwxMTY1NDM5ODk4LDcyMTc0NjM2NiwtMTIzMDY4
 NjgxOCwtMzY2NjA2MDY0LDEyNzYyNjY5ODEsNDYwNDU2OTM2LC
 0xODg3NzQ5MjgxLC0xMjMxMDE2MjE3XX0=
