@@ -12,6 +12,7 @@ established whose senses are under control.
 
 In this sentence he is saying you have more capacity than the senses carrying you away. 
 
+Restrained from senses, 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTk1ODU0OTk2XX0=
+eyJoaXN0b3J5IjpbLTUzOTA4NjAwNF19
 -->
