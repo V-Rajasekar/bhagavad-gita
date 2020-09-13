@@ -8,7 +8,9 @@ vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā
 
 Having restrained them all, one should
 sit united with Me as the supreme. One's winsdom is indeed
-established whose senses are under conta
+established whose senses are under control. 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg3MDM2NjE0OV19
+eyJoaXN0b3J5IjpbMTI5NjQxMTMyOV19
 -->
