@@ -25,14 +25,14 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 **5. Perseverance (consistence), tenacity refusing to accept failure**  only consistent effort can give you the success
 
 
-
+**Vishwamithra** a great saga. He tapped the Gayathri manthra in raw form and
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNjA1MDE3MzAsMTE2NTQzOTg5OCw3Mj
-E3NDYzNjYsLTEyMzA2ODY4MTgsLTM2NjYwNjA2NCwxMjc2MjY2
-OTgxLDQ2MDQ1NjkzNiwtMTg4Nzc0OTI4MSwtMTIzMTAxNjIxN1
-19
+eyJoaXN0b3J5IjpbMTEyNDUzMzgxMSwtMTE2MDUwMTczMCwxMT
+Y1NDM5ODk4LDcyMTc0NjM2NiwtMTIzMDY4NjgxOCwtMzY2NjA2
+MDY0LDEyNzYyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC
+0xMjMxMDE2MjE3XX0=
 -->
