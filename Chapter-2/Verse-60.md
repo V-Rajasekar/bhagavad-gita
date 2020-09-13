@@ -27,7 +27,7 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 **Vishwamithra** a great sage. He tapped the Gayathri manthra in raw form and converted it to sound vibration which can be useful to mankind. 
 
-**Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a **Brahma rishi** was tremendous. He continued doing thapas repeatedly after loosing his power by got defeated by Kamathenu army, Guru Vasista, sending king trishula with his body to heaven, and then by helping a boy to protect him from fire.  fell for Menaga, cursing Ramba.
+**Kaushika** is the another name of Vishwamithra, his perseverence towards becoming a **Brahma rishi** was tremendous. He continued doing thapas for 1000's of year (many times) repeately after loosing his power by got defeated by Kamathenu army, Guru Vasista, sending king trishula with his body to heaven, and then by helping a boy to protect him from fire.  fell for Menaga, cursing Ramba.
 
 if You  even have a 1% of perservance, tenacity of *Kaushika* you can achieve anything in life.
 
@@ -35,9 +35,9 @@ if You  even have a 1% of perservance, tenacity of *Kaushika* you can achieve an
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM1MzA0OTY4NSwtNDcxNTIzMjIwLC0xNj
-IxMjczMjg4LC0xMTYwNTAxNzMwLDExNjU0Mzk4OTgsNzIxNzQ2
-MzY2LC0xMjMwNjg2ODE4LC0zNjY2MDYwNjQsMTI3NjI2Njk4MS
-w0NjA0NTY5MzYsLTE4ODc3NDkyODEsLTEyMzEwMTYyMTddfQ==
-
+eyJoaXN0b3J5IjpbODE3MjE1ODkzLDEzNTMwNDk2ODUsLTQ3MT
+UyMzIyMCwtMTYyMTI3MzI4OCwtMTE2MDUwMTczMCwxMTY1NDM5
+ODk4LDcyMTc0NjM2NiwtMTIzMDY4NjgxOCwtMzY2NjA2MDY0LD
+EyNzYyNjY5ODEsNDYwNDU2OTM2LC0xODg3NzQ5MjgxLC0xMjMx
+MDE2MjE3XX0=
 -->
