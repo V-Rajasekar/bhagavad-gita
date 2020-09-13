@@ -28,8 +28,10 @@ vipashchithah - one who aware of his mind. But here one is striving in that path
 
 
 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzIxNzQ2MzY2LC0xMjMwNjg2ODE4LC0zNj
-Y2MDYwNjQsMTI3NjI2Njk4MSw0NjA0NTY5MzYsLTE4ODc3NDky
-ODEsLTEyMzEwMTYyMTddfQ==
+eyJoaXN0b3J5IjpbMTE2NTQzOTg5OCw3MjE3NDYzNjYsLTEyMz
+A2ODY4MTgsLTM2NjYwNjA2NCwxMjc2MjY2OTgxLDQ2MDQ1Njkz
+NiwtMTg4Nzc0OTI4MSwtMTIzMTAxNjIxN119
 -->
