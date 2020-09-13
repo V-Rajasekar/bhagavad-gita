@@ -10,9 +10,8 @@ Having restrained them all, one should
 sit united with Me as the supreme. One's winsdom is indeed
 established whose senses are under control. 
 
-In this sentence he is saying you have more capacity than the senses carrying you away. 
-
-Restrained from senses, 
+In this sentence he is saying you have more capacity than the senses carrying you away 
+getting united with the infinite. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUzOTA4NjAwNF19
+eyJoaXN0b3J5IjpbMTQzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
