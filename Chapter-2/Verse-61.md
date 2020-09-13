@@ -6,7 +6,9 @@
 > tāni sarvāṇi sanyamya yukta āsīta mat-paraḥ  
 vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā
 
-
+Having restrained them all, one should
+sit united with Me as the supreme. One's winsdom is indeed
+established whose senses are under conta
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODAxMTQ3NTgyXX0=
+eyJoaXN0b3J5IjpbMTg3MDM2NjE0OV19
 -->
