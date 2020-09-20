@@ -7,7 +7,7 @@
 vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā*
 
 Having restrained them all, one should
-sit united with Me as the supreme. One's winsdom is indeed
+sit united with Me as the supreme. One's wisdom is indeed
 established whose senses are under control. 
 
 In this sentence he is saying you have more capacity than the senses carrying you away getting united with the infinite. 
@@ -15,6 +15,6 @@ In this sentence he is saying you have more capacity than the senses carrying yo
 - If you have a weakness on sense organ
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc2MzU2MDA5MSwtMjAxNDkzNDcwNiwxND
+eyJoaXN0b3J5IjpbLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxND
 M0NDEyMjg0LC01MzkwODYwMDRdfQ==
 -->
