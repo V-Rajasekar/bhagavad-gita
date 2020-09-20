@@ -11,8 +11,8 @@ sit united with Me as the supreme. One's winsdom is indeed
 established whose senses are under control. 
 
 In this sentence he is saying you have more capacity than the senses carrying you away getting united with the infinite. 
-Tani saravni - means 
+Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). Even weakness in one sense organ will put us down, so get control over all the sense organs.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MjQ1MTg4MDcsLTIwMTQ5MzQ3MDYsMT
-QzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
+eyJoaXN0b3J5IjpbOTM1MjUyMjg1LC0yMDE0OTM0NzA2LDE0Mz
+Q0MTIyODQsLTUzOTA4NjAwNF19
 -->
