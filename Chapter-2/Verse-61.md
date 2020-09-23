@@ -15,10 +15,11 @@ In this sentence he is saying you have more capacity than the senses
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing restraining it checking it 
 		2. completely stopping
-		3. Iyum also represents double(twin)
+		3. yum also represents double(twin)
+	
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE4ODczNDA5LDIwNDM0NTUwNTEsNTQ5OT
-Y5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0NzA2
-LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF19
+eyJoaXN0b3J5IjpbLTEzMTQ1NTE3MjYsMjA0MzQ1NTA1MSw1ND
+k5NjkyODcsLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3
+MDYsMTQzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
