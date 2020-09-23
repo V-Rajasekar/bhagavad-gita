@@ -12,10 +12,10 @@ established whose senses are under control.
 
 In this sentence he is saying you have more capacity than the senses 
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
-- sanyamya (sayamya- sum+yum) yum means restrain and sum totally
+- sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5Mj
-YyOTgxLC0yMDE0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAw
-NF19
+eyJoaXN0b3J5IjpbMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2Nj
+I5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4
+NCwtNTM5MDg2MDA0XX0=
 -->
