@@ -11,11 +11,11 @@ sit united with Me as the supreme. One's wisdom is indeed
 established whose senses are under control. 
 
 In this sentence he is saying you have more capacity than the senses 
-- Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energthe weakness on sense, the ego will be waiting Even weakness in one sense organ will put us down, so get control over all the sense organs.
+- Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
 - If you have a weakness on sense organ
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQyNzE2ODYxNCwtMTY2Mjk2OTUsLTgwOT
-I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
-MDRdfQ==
+eyJoaXN0b3J5IjpbMTEyNzc1NTU4LC0xNjYyOTY5NSwtODA5Mj
+YyOTgxLC0yMDE0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAw
+NF19
 -->
