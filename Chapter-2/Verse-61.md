@@ -10,11 +10,11 @@ Having restrained them all, one should
 sit united with Me as the supreme. One's wisdom is indeed
 established whose senses are under control. 
 
-In this sentence he is saying you have more capacity than the senses carrying you away getting united with the infinite. 
+In this sentence he is saying you have more capacity than the senses 
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). Even weakness in one sense organ will put us down, so get control over all the sense organs.
 - If you have a weakness on sense organ
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxND
-M0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMT
+Q5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
