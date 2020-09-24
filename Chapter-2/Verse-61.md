@@ -15,7 +15,7 @@ In this sentence he is saying you have more capacity than the senses
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
 		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
-		3. yum also represents double(twin) yum means restrain
+		3. yam also represents double(twin) yam means to restrain,  ayam means to stretch out at physical level allowing to cont
 Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 when you start practising Sayamya your consciousness move from external senses to the sense centers of mind. you will enjoy everything in life, but also detached. 
@@ -24,8 +24,8 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzA3OTkxNTU4LDE2ODA0MzMzODMsMTAyMT
-AwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUx
-LDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxND
-kzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbLTIxMzkwODcyMjksMTY4MDQzMzM4MywxMD
+IxMDAwMzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUw
+NTEsNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMD
+E0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF19
 -->
