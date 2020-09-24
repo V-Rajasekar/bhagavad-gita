@@ -17,9 +17,10 @@ In this sentence he is saying you have more capacity than the senses
 		2. completely stopping 
 		3. yum also represents double(twin)
 
-
+SayamaKnowing when to contact, when to restrain and when to stop it 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0Mz
-Q1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MDkyNjI5ODEs
-LTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
+eyJoaXN0b3J5IjpbMTYyMzMyODYwNCwxOTcwOTQ3NjY2LDkxMz
+EzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUs
+LTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01Mz
+kwODYwMDRdfQ==
 -->
