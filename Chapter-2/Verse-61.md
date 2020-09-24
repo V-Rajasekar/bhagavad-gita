@@ -18,14 +18,14 @@ In this sentence he is saying you have more capacity than the senses
 		3. yum also represents double(twin)
 Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
-when to start practising Sayamya your consciousness move from external senses to the sense centers. you will enjoy everything in life, but also detached. 
+when you start practising Sayamya your consciousness move from external senses to the sense centers of mind. you will enjoy everything in life, but also detached. 
 Sayamya and meditation(Sadhana) compliments each other, when you practise sayamya it gives focus to sit and meditate and mediation gives energy to practise sayamya.
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MzI0Nzk1NjgsMTAyMTAwMDM5NywxOT
-cwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4
-NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxND
-M0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbMTY4MDQzMzM4MywxMDIxMDAwMzk3LDE5Nz
+A5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNTQ5OTY5Mjg3
+LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0NzA2LDE0Mz
+Q0MTIyODQsLTUzOTA4NjAwNF19
 -->
