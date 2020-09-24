@@ -18,11 +18,12 @@ In this sentence he is saying you have more capacity than the senses
 		3. yum also represents double(twin)
 
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
-when to start practising Sayamya your consciousness move from external senses to the sense c organ 
+when to start practising Sayamya your consciousness move from external senses to the sense centers. you will enjoy everything in life, but also detached. 
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNzc1MDk3MzcsMTk3MDk0NzY2Niw5MT
-MxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1
-LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNT
-M5MDg2MDA0XX0=
+eyJoaXN0b3J5IjpbMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMz
+EzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUs
+LTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01Mz
+kwODYwMDRdfQ==
 -->
