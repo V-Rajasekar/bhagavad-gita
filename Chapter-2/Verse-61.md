@@ -17,10 +17,10 @@ In this sentence he is saying you have more capacity than the senses
 		2. completely stopping (stop and do sadhana)
 		3. yum also represents double(twin)
 
-Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it .
+Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5MDM4Mzg4NSwxOTcwOTQ3NjY2LDkxMz
+eyJoaXN0b3J5IjpbLTk0MTMyNTg3OCwxOTcwOTQ3NjY2LDkxMz
 EzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUs
 LTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01Mz
 kwODYwMDRdfQ==
