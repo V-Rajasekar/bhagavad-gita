@@ -12,11 +12,12 @@ established whose senses are under control.*
 
 In this sentence he is saying you have more capacity than the senses 
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
+Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
 		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
-		3. yam also represents double(twin) yam means to restrain,  ayam means to stretch out at physical level allowing to cont
-Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
+		3. yam also represents double(twin) yam means to restrain,  ayam means to stretch out at physical level allowing the sense organs to contact the sense objects. (only) where you don't have any weakness. 
+
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 when you start practising Sayamya your consciousness move from external senses to the sense centers of mind. you will enjoy everything in life, but also detached. 
 Sayamya and meditation(Sadhana) compliments each other, when you practise sayamya it gives focus to sit and meditate and mediation gives energy to practise sayamya.
@@ -24,8 +25,8 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzkwODcyMjksMTY4MDQzMzM4MywxMD
-IxMDAwMzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUw
-NTEsNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMD
-E0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF19
+eyJoaXN0b3J5IjpbMTUzMjA5OTk1NywxNjgwNDMzMzgzLDEwMj
+EwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1
+MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMT
+Q5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
