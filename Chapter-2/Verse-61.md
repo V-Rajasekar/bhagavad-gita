@@ -19,11 +19,12 @@ In this sentence he is saying you have more capacity than the senses
 
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 when to start practising Sayamya your consciousness move from external senses to the sense centers. you will enjoy everything in life, but also detached. 
+Sayamya and meditation(Sadhana) compliments each other, 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTU1NDg2Njk1LDEwMjEwMDAzOTcsMTk3MD
-k0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcs
-LTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzND
-QxMjI4NCwtNTM5MDg2MDA0XX0=
+eyJoaXN0b3J5IjpbLTE2NDc4MDc1NTIsMTAyMTAwMDM5NywxOT
+cwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4
+NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxND
+M0NDEyMjg0LC01MzkwODYwMDRdfQ==
 -->
