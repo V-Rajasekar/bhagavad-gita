@@ -6,9 +6,9 @@
 > *tāni sarvāṇi sanyamya yukta āsīta mat-paraḥ  
 vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā*
 
-Having restrained them all, one should
+*Having restrained them all, one should
 sit united with Me as the supreme. One's wisdom is indeed
-established whose senses are under control. 
+established whose senses are under control.* 
 
 In this sentence he is saying you have more capacity than the senses 
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
@@ -22,8 +22,8 @@ when to start practising Sayamya your consciousness move from external senses to
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMz
-EzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUs
-LTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01Mz
-kwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbOTU1NDg2Njk1LDEwMjEwMDAzOTcsMTk3MD
+k0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcs
+LTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzND
+QxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
