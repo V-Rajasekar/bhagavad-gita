@@ -14,8 +14,9 @@ In this sentence he is saying you have more capacity than the senses
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
-		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst in to anger or affected other sense
+		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst in some other way like anger, over eating.
 		3. yum also represents double(twin)
+Self
 
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 when to start practising Sayamya your consciousness move from external senses to the sense centers. you will enjoy everything in life, but also detached. 
@@ -24,8 +25,8 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIxODcwOTcyNywxMDIxMDAwMzk3LDE5Nz
-A5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNTQ5OTY5Mjg3
-LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0NzA2LDE0Mz
-Q0MTIyODQsLTUzOTA4NjAwNF19
+eyJoaXN0b3J5IjpbMzY1ODkxNjk5LDEwMjEwMDAzOTcsMTk3MD
+k0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcs
+LTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzND
+QxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
