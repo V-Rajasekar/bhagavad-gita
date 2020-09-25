@@ -23,6 +23,7 @@ For example, over-eating could be due to suppression of pleasure from other sens
  Even weakness in one sense organ will put us down, so get control over all the sense organs.Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
  
  **Solution to the problem of Mastering the senses**
+ The solution is not to deny the sense pleasures. This will only lead to frustration.The solution is sadhana through Yoga Sankirtan and following the principles behind the beautiful word sumyamya . This word is a sandhi of two words sum + yum (intense + restrain) and is also pronounced as sayyamya .
  
  The **third signifiance is ** the word sayamya in simple word sumyamya
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
@@ -37,7 +38,7 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2ODE2MTIwMCwxNTMyMDk5OTU3LDE2OD
+eyJoaXN0b3J5IjpbMjAwMTYzMjUxMSwxNTMyMDk5OTU3LDE2OD
 A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
 MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
 I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
