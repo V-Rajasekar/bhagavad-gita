@@ -29,21 +29,19 @@ For example, over-eating could be due to suppression of pleasure from other sens
 	1. "*check or restrain*". When we are contacting the sense objects, e.g., eating a sweet, we should restrain if we find ourselves losing control.  
 	2. "*Completely stopping*"If our consciousness is totally lost in the sense pleasure and we are out of control completely, we have to stop the experience immediately.  Mere stopping might pent up the frustration and burt out some other area like over eating. anger, so do Sadhana.
 	3. "yum" which is "ayama" which means "to extend". In this case, this refers to extending the sense contact. For example, pranayama means to extend the prana. Note this also means restrain to the prana as the word "yam" mysteriously also happens to be inside the word "ayama".
-	4. 
-
-- sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
-		1. checking or restraining that is something is flowing you just slow it down
-		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
-		4. yam also represents double(twin) yam means to restrain,  ayam means to stretch out at physical level allowing the sense organs to contact the sense objects. (only) where you don't have any weakness. 
+	 ayam means to stretch out at physical level allowing the sense organs to contact the sense objects. (only) where you don't have any weakness. 
 
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
 when you start practising Sayamya your consciousness move from external senses to the sense centers of mind. you will enjoy everything in life, but also detached. 
+
+Only after mastering our senses through sayyamya can we meditate and fully focus on the Infinite. Yogishri noted that this is why "Uniting with the Infinite" is mentioned in the verse after *sumyamya*. He also gave the subtle point that the process of meditation itself gives us more power to master our senses. So these are like two pedals of a wheel and we should keep doing both.
+
 Sayamya and meditation(Sadhana) compliments each other, when you practise sayamya it gives focus to sit and meditate and mediation gives energy to practise sayamya.
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcwMTE2MjQzMCwxNTMyMDk5OTU3LDE2OD
+eyJoaXN0b3J5IjpbMjEwNjg2MjQ2MSwxNTMyMDk5OTU3LDE2OD
 A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
 MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
 I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
