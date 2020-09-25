@@ -25,7 +25,9 @@ For example, over-eating could be due to suppression of pleasure from other sens
  **Solution to the problem of Mastering the senses**
  The solution is not to deny the sense pleasures. This will only lead to frustration.The solution is sadhana through Yoga Sankirtan and following the principles behind the beautiful word sumyamya . This word is a sandhi of two words sum + yum (intense + restrain) and is also pronounced as sayyamya .
  
- The **third signifiance is ** the word sayamya in simple word sumyamya
+**The Three Dimensions of Sayamya**
+1. check or restrain. When we are contacting the sense objects, e.g., eating a sweet, we should restrain if we find ourselves losing control.  If our consciousness is totally lost in the sense pleasure and we are out of control completely, we have to stop the experience immediately. This is the second dimension of sayyamya.
+
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
 		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
@@ -38,7 +40,7 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAwMTYzMjUxMSwxNTMyMDk5OTU3LDE2OD
+eyJoaXN0b3J5IjpbLTgwNjMwMjQxOSwxNTMyMDk5OTU3LDE2OD
 A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
 MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
 I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
