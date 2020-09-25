@@ -18,9 +18,11 @@ When water leaks from a bottle with ten holes, all ten holes have to be plugged 
 
 The  **second signifiance**  "*completely stopping*" when you know your lossing your control or consciousness in one sense enjoyment its  the time to stop completely.When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels.
 
+For example, over-eating could be due to suppression of pleasure from other senses. Similarly, when we shout at a spouse, it may be totally unrelated to them and due to a suppression in another area, e.g., office work.
+
  Even weakness in one sense organ will put us down, so get control over all the sense organs.Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
  
- The **third signifiance is **
+ The **third signifiance is ** 
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
 		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
@@ -33,9 +35,9 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc1MDgzNDk3NiwxNTMyMDk5OTU3LDE2OD
-A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
-MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
-I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
-MDRdfQ==
+eyJoaXN0b3J5IjpbLTE4NjkwMDg3NTAsMTUzMjA5OTk1NywxNj
+gwNDMzMzgzLDEwMjEwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0
+NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MD
+kyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2
+MDA0XX0=
 -->
