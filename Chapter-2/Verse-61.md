@@ -27,8 +27,8 @@ For example, over-eating could be due to suppression of pleasure from other sens
  
 **The Three Dimensions of Sayamya**
 	1. "*check or restrain*". When we are contacting the sense objects, e.g., eating a sweet, we should restrain if we find ourselves losing control.  
-	2. "*Completely stopping*"If our consciousness is totally lost in the sense pleasure and we are out of control completely, we have to stop the experience immediately.  Mere stopping might pent up the frustration and burt out some ot
-	3. 
+	2. "*Completely stopping*"If our consciousness is totally lost in the sense pleasure and we are out of control completely, we have to stop the experience immediately.  Mere stopping might pent up the frustration and burt out some other area like over eating. anger, so do Sadhana.
+	3. "yum" which is "ayama" 
 
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
@@ -42,7 +42,7 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMyMjk2MTUzMywxNTMyMDk5OTU3LDE2OD
+eyJoaXN0b3J5IjpbLTk0OTYzMDUzMSwxNTMyMDk5OTU3LDE2OD
 A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
 MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
 I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
