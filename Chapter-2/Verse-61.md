@@ -22,7 +22,7 @@ For example, over-eating could be due to suppression of pleasure from other sens
 
  Even weakness in one sense organ will put us down, so get control over all the sense organs.Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
  
- The **third signifiance is ** 
+ The **third signifiance is ** the word sayamya in simple word sumyamya
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
 		1. checking or restraining that is something is flowing you just slow it down
 		2.  completely stopping (stop and do sadhana) otherwise the frustration pent up and burst out some other area like anger, over eating.
@@ -35,7 +35,7 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NjkwMDg3NTAsMTUzMjA5OTk1NywxNj
+eyJoaXN0b3J5IjpbLTExMzc3OTk5NDcsMTUzMjA5OTk1NywxNj
 gwNDMzMzgzLDEwMjEwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0
 NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MD
 kyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2
