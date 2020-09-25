@@ -36,14 +36,13 @@ when you start practising Sayamya your consciousness move from external senses t
 
 Only after mastering our senses through sayyamya can we meditate and fully focus on the Infinite. Yogishri noted that this is why "Uniting with the Infinite" is mentioned in the verse after *sumyamya*. He also gave the subtle point that the process of meditation itself gives us more power to master our senses. So these are like two pedals of a wheel and we should keep doing both.
 
-Sayamya and meditation(Sadhana) compliments each other, when you practise sayamya it gives focus to sit and meditate and mediation gives energy to practise sayamya.
-
+Thank you Yogishri for a very powerful meditation session today.  I am different from my sense organs.  I choose to maintain awareness while I contact the sense objects through my senses.  I am experiencing the sense contact from the sense centers in the outer part of my emotional mind.  I choose to enjoy fully the sense pleasure if I don't have a weakness.  If I find myself losing control, I will restrain my contact.  If I find myself a slave to the sense contact, I choose to stop immediately.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEwNjg2MjQ2MSwxNTMyMDk5OTU3LDE2OD
-A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
-MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
-I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
-MDRdfQ==
+eyJoaXN0b3J5IjpbLTE5NjUwMzE2NDcsMTUzMjA5OTk1NywxNj
+gwNDMzMzgzLDEwMjEwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0
+NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MD
+kyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2
+MDA0XX0=
 -->
