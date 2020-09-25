@@ -10,7 +10,7 @@ vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā*
 sit united with Me as the supreme. One's wisdom is indeed
 established whose senses are under control.* 
 
-In this sentence he talks about the three words **thani sarvani sanyamya**
+In this sentence he talks about the three words **thani sarvani sanyamya** it can be translated roughly as "restrain them all (the senses)" that would be a very simplistic translation. 
 - Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
 Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
 - sanyamya (sayamya- sum+yum) yum means restrain and sum totally. The word yum has 3 dimensions 
@@ -25,9 +25,9 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODQ5MDMxNzI2LDE1MzIwOTk5NTcsMTY4MD
-QzMzM4MywxMDIxMDAwMzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQy
-LDIwNDM0NTUwNTEsNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5Mj
-YyOTgxLC0yMDE0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAw
-NF19
+eyJoaXN0b3J5IjpbLTM2ODYxMDQ5MiwxNTMyMDk5OTU3LDE2OD
+A0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0
+MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOT
+I2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEyMjg0LC01MzkwODYw
+MDRdfQ==
 -->
