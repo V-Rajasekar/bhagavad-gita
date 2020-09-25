@@ -13,6 +13,7 @@ established whose senses are under control.*
 In this sentence he talks about the three words **thani sarvani sanyamya** it can be translated roughly as "restrain them all (the senses)" that would be a very simplistic translation. Here all the senses are the 10 senses(5 external sense organs and their actions)
 
 **Signifiance of Thaani Sarvaani**
+The **first signifiance** of the phrase Thaani Sarvaani is as follows. When water leaks from a bottle with ten holes, all ten holes have to be plugged before water stops leaking. Likewise we have to master all of our senses not just one or some of them.
 
  Tani saravni - means having controlled from all the 10 sense (5 sense organ and its resp actions). When ever your trying to apply this wisdom in one area and conserve the energy remember the ego will be waiting to redirect the mind to other channels. Even weakness in one sense organ will put us down, so get control over all the sense organs.
 Self control is not mere physical withdrawal, Its withdrawal from sense centres of the mind
@@ -28,7 +29,7 @@ Sayamya and meditation(Sadhana) compliments each other, when you practise sayamy
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU3MTI3NzksMTUzMjA5OTk1NywxNjgwND
+eyJoaXN0b3J5IjpbNDUzMjUyMTQsMTUzMjA5OTk1NywxNjgwND
 MzMzgzLDEwMjEwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0NDIs
 MjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MDkyNj
 I5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2MDA0
