@@ -42,12 +42,13 @@ It is not only the having the clarity of what is good and bad for you, but you h
 
 /**/TODO** 
 
- 1. Identify the area of weakness where you completely topple. (e.g) If you have weakness in al
+ 1. Identify the area of weakness where you completely topple. 
+ 2. Learn to determine the point where you can restrain 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5MzgxMzM3MywxMjk1NTcyNjU5LC0xOT
-Y1MDMxNjQ3LDE1MzIwOTk5NTcsMTY4MDQzMzM4MywxMDIxMDAw
-Mzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNT
-Q5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0
-NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF19
+eyJoaXN0b3J5IjpbLTE0MDUzOTgwNDQsMTI5NTU3MjY1OSwtMT
+k2NTAzMTY0NywxNTMyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAw
+MDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLD
+U0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkz
+NDcwNiwxNDM0NDEyMjg0LC01MzkwODYwMDRdfQ==
 -->
