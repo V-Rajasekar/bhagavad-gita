@@ -28,7 +28,7 @@ For example, over-eating could be due to suppression of pleasure from other sens
 **The Three Dimensions of Sayamya**
 	1. "*check or restrain*". When we are contacting the sense objects, e.g., eating a sweet, we should restrain if we find ourselves losing control.  
 	2. "*Completely stopping*"If our consciousness is totally lost in the sense pleasure and we are out of control completely, we have to stop the experience immediately.  Mere stopping might pent up the frustration and burt out some other area like over eating. anger, so do Sadhana.
-	3. "yum" which is "ayama" which means "to extend". In this case, this refers to extending the sense contact. For example, pranayama means to extend the prana. Note this also means restrain to the prana as the word "yam" mysteriously also happens to be inside the word "ayama".
+	3. "*yum*" which is "ayama" which means "to extend". In this case, this refers to extending the sense contact. For example, pranayama means to extend the prana. Note this also means restrain to the prana as the word "yam" mysteriously also happens to be inside the word "ayama".
 	 ayam means to stretch out at physical level allowing the sense organs to contact the sense objects. (only) where you don't have any weakness. 
 
 Mastering Sayamya - Knowing when to contact, when to restrain and when to stop it  w.r.t to all the senses. 
@@ -40,9 +40,9 @@ Thank you Yogishri for a very powerful meditation session today.  I am different
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NjUwMzE2NDcsMTUzMjA5OTk1NywxNj
-gwNDMzMzgzLDEwMjEwMDAzOTcsMTk3MDk0NzY2Niw5MTMxMzQ0
-NDIsMjA0MzQ1NTA1MSw1NDk5NjkyODcsLTE2NjI5Njk1LC04MD
-kyNjI5ODEsLTIwMTQ5MzQ3MDYsMTQzNDQxMjI4NCwtNTM5MDg2
-MDA0XX0=
+eyJoaXN0b3J5IjpbMTI5NTU3MjY1OSwtMTk2NTAzMTY0NywxNT
+MyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAwMDM5NywxOTcwOTQ3
+NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2OTI4NywtMT
+Y2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNiwxNDM0NDEy
+Mjg0LC01MzkwODYwMDRdfQ==
 -->
