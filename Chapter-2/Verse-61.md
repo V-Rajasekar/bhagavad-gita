@@ -48,11 +48,13 @@ It is not only the having the clarity of what is good and bad for you, but you h
 In the second part of the line "*āsīta mat-paraḥ*" asita means sit, when in the yoga sastras he talks of asana siddhi what he means is the capacity to sit without any disturbance for a long time because it is very conducive for meditation. Mastering asana siddhi is prime importance for every sadahak. 
 
 asita means sitting and resting you are tranquil but at the same time you have not fallen to sleep you are alert. Being very aware but maintaining total calmness. It is not mear physical sitting, but your mind has to settle down.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjQxNDcyMzc0LC04Mzc3NTI0MDQsNDg0Mj
-k1ODU4LC0xMzk1NDk4OTc1LDEyOTU1NzI2NTksLTE5NjUwMzE2
-NDcsMTUzMjA5OTk1NywxNjgwNDMzMzgzLDEwMjEwMDAzOTcsMT
-k3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5Njky
-ODcsLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMT
-QzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
+eyJoaXN0b3J5IjpbMTg3ODU3MDMyMiwtODM3NzUyNDA0LDQ4ND
+I5NTg1OCwtMTM5NTQ5ODk3NSwxMjk1NTcyNjU5LC0xOTY1MDMx
+NjQ3LDE1MzIwOTk5NTcsMTY4MDQzMzM4MywxMDIxMDAwMzk3LD
+E5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNTQ5OTY5
+Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0NzA2LD
+E0MzQ0MTIyODQsLTUzOTA4NjAwNF19
 -->
