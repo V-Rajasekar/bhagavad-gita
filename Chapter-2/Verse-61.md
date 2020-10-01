@@ -45,9 +45,9 @@ It is not only the having the clarity of what is good and bad for you, but you h
  1. Identify the area of weakness where you completely topple. 
  2. Learn to determine the point where you loss yourself, the moment you loss your mind withdraw
 
-In the second part of the line "*āsīta mat-paraḥ*" asita means sit, for every sadahak asana siddhi is of prime importance it will help you so much otherwise 
+In the second part of the line "*āsīta mat-paraḥ*" asita means sit, when in the yoga sastras he talks of asana siddhi what he means is the capacity to sit without any disturbance for a long time because  for every sadahak asana siddhi is of prime importance it will help you so much otherwise 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYyNTIzMjg5NiwtMTM5NTQ5ODk3NSwxMj
+eyJoaXN0b3J5IjpbLTM2OTE4MDA2NywtMTM5NTQ5ODk3NSwxMj
 k1NTcyNjU5LC0xOTY1MDMxNjQ3LDE1MzIwOTk5NTcsMTY4MDQz
 MzM4MywxMDIxMDAwMzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLD
 IwNDM0NTUwNTEsNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYy
