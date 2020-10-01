@@ -39,8 +39,13 @@ Only after mastering our senses through sayyamya can we meditate and fully focus
 Thank you Yogishri for a very powerful meditation session today.  I am different from my sense organs.  I choose to maintain awareness while I contact the sense objects through my senses.  I am experiencing the sense contact from the sense centers in the outer part of my emotional mind.  I choose to enjoy fully the sense pleasure if I don't have a weakness.  If I find myself losing control, I will restrain my contact.  If I find myself a slave to the sense contact, I choose to stop immediately.
 
 It is not only the having the clarity of what is good and bad for you, but you have to practise it to an extend where in the clarity is not covered by your mind when you go through the experience in the life.
+
+/**/TODO** 
+
+ 1. Identify the area of weakness where you completely topple. (e.g) If you have weakness in al
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI5NDAwMDg4NiwxMjk1NTcyNjU5LC0xOT
+eyJoaXN0b3J5IjpbMTg5MzgxMzM3MywxMjk1NTcyNjU5LC0xOT
 Y1MDMxNjQ3LDE1MzIwOTk5NTcsMTY4MDQzMzM4MywxMDIxMDAw
 Mzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNT
 Q5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0
