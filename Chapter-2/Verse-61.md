@@ -45,10 +45,12 @@ It is not only the having the clarity of what is good and bad for you, but you h
  1. Identify the area of weakness where you completely topple. 
  2. Learn to determine the point where you loss yourself, the moment you loss your mind withdraw
 
+In the second part of the line "*āsīta mat-paraḥ*"
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzOTU0OTg5NzUsMTI5NTU3MjY1OSwtMT
-k2NTAzMTY0NywxNTMyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAw
-MDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLD
-U0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkz
-NDcwNiwxNDM0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbMTYzNjEwNzAzMiwtMTM5NTQ5ODk3NSwxMj
+k1NTcyNjU5LC0xOTY1MDMxNjQ3LDE1MzIwOTk5NTcsMTY4MDQz
+MzM4MywxMDIxMDAwMzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLD
+IwNDM0NTUwNTEsNTQ5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYy
+OTgxLC0yMDE0OTM0NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF
+19
 -->
