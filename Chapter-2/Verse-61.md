@@ -49,13 +49,15 @@ In the second part of the line "*āsīta mat-paraḥ*" asita means sit, when in 
 
 asita means sitting and resting you are tranquil but at the same time you have not fallen to sleep you are alert. Being very aware but maintaining total calmness. It is not mear physical sitting, but your mind has to settle down.
 
-when my mind will settle down, it is only when you practise the  "tāni sarvāṇi sanyamya yukta" it is not cronical order all the steps has to be practise side by side. 
+when my mind will settle down, it is only when you practise the  "tāni sarvāṇi sanyamya yukta" it is not cronical order all the steps has to be practise side by side.
+
+Asita is not laziness it is relaxed alertness it is practised in martial art. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5Nzc1MTU0MTMsLTgzNzc1MjQwNCw0OD
-QyOTU4NTgsLTEzOTU0OTg5NzUsMTI5NTU3MjY1OSwtMTk2NTAz
-MTY0NywxNTMyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAwMDM5Ny
-wxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLDU0OTk2
-OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkzNDcwNi
-wxNDM0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbOTk4NjQ5NDQ0LC04Mzc3NTI0MDQsNDg0Mj
+k1ODU4LC0xMzk1NDk4OTc1LDEyOTU1NzI2NTksLTE5NjUwMzE2
+NDcsMTUzMjA5OTk1NywxNjgwNDMzMzgzLDEwMjEwMDAzOTcsMT
+k3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5Njky
+ODcsLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMT
+QzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
 -->
