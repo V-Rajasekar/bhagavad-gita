@@ -49,10 +49,10 @@ In the second part of the line "*āsīta mat-paraḥ*" asita means sit, when in 
 
 asita means sitting and resting you are tranquil but at the same time you have not fallen to sleep you are alert. Being very aware but maintaining total calmness. It is not mear physical sitting, but your mind has to settle down.
 
-when my mind will settle down, it is only when you practise the first "tāni sarvāṇi sanyamya yukta"
+when my mind will settle down, it is only when you practise the  "tāni sarvāṇi sanyamya yukta" it is not cronical
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzkzMzk5MTA3LC04Mzc3NTI0MDQsNDg0Mj
+eyJoaXN0b3J5IjpbMzI0MTk2NzU0LC04Mzc3NTI0MDQsNDg0Mj
 k1ODU4LC0xMzk1NDk4OTc1LDEyOTU1NzI2NTksLTE5NjUwMzE2
 NDcsMTUzMjA5OTk1NywxNjgwNDMzMzgzLDEwMjEwMDAzOTcsMT
 k3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5Njky
