@@ -40,13 +40,13 @@ Thank you Yogishri for a very powerful meditation session today.  I am different
 
 It is not only the having the clarity of what is good and bad for you, but you have to practise it to an extend where in the clarity is not covered by your mind when you go through the experience in the life.
 
-/**/TODO** 
+/**/Practise** 
 
  1. Identify the area of weakness where you completely topple. 
- 2. Learn to determine the point where you can restrain 
+ 2. Learn to determine the point where you loss yourself, the moment you loss your mind withdraw
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MDUzOTgwNDQsMTI5NTU3MjY1OSwtMT
+eyJoaXN0b3J5IjpbLTEzOTU0OTg5NzUsMTI5NTU3MjY1OSwtMT
 k2NTAzMTY0NywxNTMyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAw
 MDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLD
 U0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkz
