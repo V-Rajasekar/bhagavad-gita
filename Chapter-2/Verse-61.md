@@ -38,11 +38,11 @@ Only after mastering our senses through sayyamya can we meditate and fully focus
 
 Thank you Yogishri for a very powerful meditation session today.  I am different from my sense organs.  I choose to maintain awareness while I contact the sense objects through my senses.  I am experiencing the sense contact from the sense centers in the outer part of my emotional mind.  I choose to enjoy fully the sense pleasure if I don't have a weakness.  If I find myself losing control, I will restrain my contact.  If I find myself a slave to the sense contact, I choose to stop immediately.
 
-It is not only important to know what is good and bad for you, but you have to practise it to an extend where in the ex
+It is not only the having the clarity of what is good and bad for you, but you have to practise it to an extend where in the clarity is not covered by your mind when you go through the experience in the life.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1ODk1Mzg1ODcsMTI5NTU3MjY1OSwtMT
-k2NTAzMTY0NywxNTMyMDk5OTU3LDE2ODA0MzMzODMsMTAyMTAw
-MDM5NywxOTcwOTQ3NjY2LDkxMzEzNDQ0MiwyMDQzNDU1MDUxLD
-U0OTk2OTI4NywtMTY2Mjk2OTUsLTgwOTI2Mjk4MSwtMjAxNDkz
-NDcwNiwxNDM0NDEyMjg0LC01MzkwODYwMDRdfQ==
+eyJoaXN0b3J5IjpbMTI5NDAwMDg4NiwxMjk1NTcyNjU5LC0xOT
+Y1MDMxNjQ3LDE1MzIwOTk5NTcsMTY4MDQzMzM4MywxMDIxMDAw
+Mzk3LDE5NzA5NDc2NjYsOTEzMTM0NDQyLDIwNDM0NTUwNTEsNT
+Q5OTY5Mjg3LC0xNjYyOTY5NSwtODA5MjYyOTgxLC0yMDE0OTM0
+NzA2LDE0MzQ0MTIyODQsLTUzOTA4NjAwNF19
 -->
