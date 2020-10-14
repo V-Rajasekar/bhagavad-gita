@@ -53,11 +53,8 @@ when my mind will settle down, it is only when you practise the  "tāni sarvā�
 
 Asita is not laziness it is relaxed alertness it is practised in martial art. 
 
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbOTk4NjQ5NDQ0LC04Mzc3NTI0MDQsNDg0Mj
-k1ODU4LC0xMzk1NDk4OTc1LDEyOTU1NzI2NTksLTE5NjUwMzE2
-NDcsMTUzMjA5OTk1NywxNjgwNDMzMzgzLDEwMjEwMDAzOTcsMT
-k3MDk0NzY2Niw5MTMxMzQ0NDIsMjA0MzQ1NTA1MSw1NDk5Njky
-ODcsLTE2NjI5Njk1LC04MDkyNjI5ODEsLTIwMTQ5MzQ3MDYsMT
-QzNDQxMjI4NCwtNTM5MDg2MDA0XX0=
--->
+
+
+`vaśhe hi yasyendriyāṇi tasya prajñā pratiṣhṭhitā`
+
+Practising "sainyamya" will give you tremendous powers (Siddhis) but don't be satisfied with just that. By continuing to connect with the Infinite within us, we will gain complete mastery (vashaha) over the senses
