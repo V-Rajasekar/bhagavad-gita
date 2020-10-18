@@ -30,12 +30,14 @@ it gets boredom, or when you don't enjoy your life. This boredom may lead to ove
 
 How to avoid boredom ?
 - Follow your swatha dharma that is do which is interested to enjoyable to you
-- Enjoy simple actions in our daily day to day lifes( Brushing your teeth, Bathing, Drinking water)
+- Enjoy simple actions in our daily day to day lifes ( Brushing your teeth, Bathing, Drinking water)
 - Enjoy your work, if you enjoy your work it becomes relaxation to you.
-- Go in-depth in your field
+- Go in-depth in your field like reading and understanding  the basics in your field.
+- Enjoy cooking and eating
+
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMDA0Mzk3MTNdfQ==
+eyJoaXN0b3J5IjpbNjU5MzI2MTM4XX0=
 -->
