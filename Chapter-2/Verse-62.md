@@ -45,6 +45,8 @@ when does mind recall (go back to object again and again) when ever you contact 
 
 
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5OTY3NDY2NzMsLTIxMDE5Nzk4XX0=
+eyJoaXN0b3J5IjpbLTEyODQ1NTMwMjcsLTE5OTY3NDY2NzMsLT
+IxMDE5Nzk4XX0=
 -->
