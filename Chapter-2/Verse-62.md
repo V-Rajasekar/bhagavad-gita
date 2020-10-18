@@ -36,10 +36,12 @@ How to avoid boredom ?
 If you practise the above mind will never get boredom if you stop this mind will start finding other avenues to overcome boredom like casual thinkings. 
 
 `dhyāyato` 3rd dimension is calling to mind (recall) after an experience the mind has the tendency to call back the object if this happens without your awareness again your _frittering_ away your energies. 
-The more recalling the things in mind it develops attachment 
+The more recalling the things in mind it develops attachment addiction and further produces more negativity. 
+when you recall some in your past with awareness is fine. 
+Don't be worry about the past and don't be anxious about future,
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI0Njc2MDQwNSwtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbLTQ5OTczODE5NSwtMjEwMTk3OThdfQ==
 -->
