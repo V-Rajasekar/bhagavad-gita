@@ -41,10 +41,10 @@ when you recall some in your past with awareness is fine. In scriptures never sa
 
 `Don't be worry about the past and don't be anxious about future.`
 
-when does mind recall (go back to object again and again) when ever you con
+when does mind recall (go back to object again and again) when ever you contact the object and that object gives either pleasure or pain. Depending on the intensity of pleasure or pain the mind will recall that object to that extend. 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1MjY3NzA2OSwtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbLTE5OTY3NDY2NzMsLTIxMDE5Nzk4XX0=
 -->
