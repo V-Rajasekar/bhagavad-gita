@@ -37,11 +37,14 @@ If you practise the above mind will never get boredom if you stop this mind will
 
 `dhyāyato` 3rd dimension is calling to mind (recall) after an experience the mind has the tendency to call back the object if this happens without your awareness again your _frittering_ away your energies. 
 The more recalling the things in mind it develops attachment addiction and further produces more negativity. 
-when you recall some in your past with awareness is fine. In scriptures never said don't think about past and future and live in prese
-Don't be worry about the past and don't be anxious about future.
+when you recall some in your past with awareness is fine. In scriptures never said don't think about past and future and live in present it's infact
+
+`Don't be worry about the past and don't be anxious about future.`
+
+when does mind recall (go back to object again and again) when ever you con
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM0MDI5MzQyMywtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbMTc1MjY3NzA2OSwtMjEwMTk3OThdfQ==
 -->
