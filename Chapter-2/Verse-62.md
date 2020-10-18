@@ -29,14 +29,14 @@ why is it mind want to gather information? that is the very natural urge of mind
 it gets boredom, or when you don't enjoy your life. This boredom may lead to overeating, addiction towards sense objects(watching TV), drugs. 
 
 How to avoid boredom ?
-- Follow your swatha dharma that is do which is interested to enjoyable to you
+- Follow your swadharma that is do which is interested to enjoyable to you
 - Enjoy simple actions in our daily day to day lifes ( Brushing your teeth, Bathing, Drinking water, cooking and eating)
-- Enjoy your work, if you enjoy your work it becomes relaxation to you.
+- When work is enjoyable work itself will give you rela
 - Go in-depth in your field like reading and understanding  the basics in your field. 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMDE5Nzk4XX0=
+eyJoaXN0b3J5IjpbLTE4MDczMDg1OSwtMjEwMTk3OThdfQ==
 -->
