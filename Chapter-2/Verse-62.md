@@ -10,7 +10,7 @@ When a humanbeing thinks on sense objects.
 He gets attached to it. From attachment borns desire
 From desire borns anger.
 
-In verse 62 and 63 he describes the ladder of fall and overcome it. Its help tp <
+In verse 62 and 63 he describes the ladder of fall and overcome it. Its help you to **Master your own mind**
 
 Only the humanbeing have the choice of action and not the other creatures in this world, so if a humanbeing's uncontrolled thoughts 
 (e.g) without conciousness and fully awarness thinks on sense object it become dangers. First filter your thoughts with full awarness whether its good or bad to him and others. 
@@ -47,6 +47,6 @@ when does mind recall (go back to object again and again) when ever you contact 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMzY1MzY4NDEsLTEyODQ1NTMwMjcsLT
-E5OTY3NDY2NzMsLTIxMDE5Nzk4XX0=
+eyJoaXN0b3J5IjpbLTMyNDQ3MzQ1OCwtMTI4NDU1MzAyNywtMT
+k5Njc0NjY3MywtMjEwMTk3OThdfQ==
 -->
