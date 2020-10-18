@@ -35,10 +35,10 @@ How to avoid boredom ?
 - Go in-depth in your field like reading and understanding  the basics in your field. 
 If you practise the above mind will never get boredom if you stop this mind will start finding other avenues to overcome boredom like casual thinkings. 
 
-3rd dimension of recalling of mind.
+`dhyāyato` 3rd dimension is calling to mind (recall) after an experience the mind has the tendency to call bac
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU3NDI1MjQ3NywtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbMTYzNzY2OTkwMiwtMjEwMTk3OThdfQ==
 -->
