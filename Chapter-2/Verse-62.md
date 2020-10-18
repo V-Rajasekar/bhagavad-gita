@@ -26,9 +26,13 @@ Using my choice of action I can direct the mind to those objects which can give 
 why mind goes on its own? It is inorder to gather information about that object 
 why is it mind want to gather information? that is the very natural urge of mind to explore and gain knowledge its like other urges (hunger, thirsty) which you can't be stopped.
 `dhyāyato` the other dimension of it's casual thinking. Casual thinking comes when you get boredom, when mind doesn't find anything interesting
-it gets boredom, or when you don't enjoy your life. This boredom may lead to overeating, addiction towards sense objects(watching TV
+it gets boredom, or when you don't enjoy your life. This boredom may lead to overeating, addiction towards sense objects(watching TV), drugs. 
+
+How to avoid boredom ?
+- Follow your 
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4OTY4ODA5MzhdfQ==
+eyJoaXN0b3J5IjpbNzU2NDYyMjYwXX0=
 -->
