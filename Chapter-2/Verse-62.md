@@ -33,10 +33,10 @@ How to avoid boredom ?
 - Enjoy simple actions in our daily day to day lifes ( Brushing your teeth, Bathing, Drinking water, cooking and eating)
 - When work is enjoyable that work will start giving relaxation.
 - Go in-depth in your field like reading and understanding  the basics in your field. 
-If you practise the a
+If you practise the above mind will never get boredom if you stop this mind will start finding other avenues to overcome boredom. 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5NjY1NTE1NywtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbMTIwMjkyNjUzOCwtMjEwMTk3OThdfQ==
 -->
