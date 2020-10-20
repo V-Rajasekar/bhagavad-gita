@@ -43,11 +43,11 @@ when you recall some in your past with awareness is fine. In scriptures never sa
 
 when does mind recall (go back to object again and again) when ever you contact the object and that object gives either pleasure or pain. Depending on the intensity of pleasure or pain the mind will recall that object to that extend. 
 
-saṅgas teṣhūpajāyate
+`saṅgas teṣhūpajāyate`
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4MzI3MzM0OCwtMzI0NDczNDU4LC0xMj
-g0NTUzMDI3LC0xOTk2NzQ2NjczLC0yMTAxOTc5OF19
+eyJoaXN0b3J5IjpbLTIxMzA2MzUyNzYsLTMyNDQ3MzQ1OCwtMT
+I4NDU1MzAyNywtMTk5Njc0NjY3MywtMjEwMTk3OThdfQ==
 -->
