@@ -46,10 +46,12 @@ when does mind recall (go back to object again and again) when ever you contact 
 `sangas teṣhūpajāyate`
 `sangah` - attached to people or object
 When our mind generates thoughts towards the objects we call it Dhyaihi but when the same thoughts become intense without awareness it gathers more strength then we get attachment to that any object or could be a person. 
+
 `ūpajāyate` means something which is born or produced on its own.  Sanghah+jayate: The attachment that is born on its own without awareness.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY1ODQxNjIyLC0zMjQ0NzM0NTgsLTEyOD
-Q1NTMwMjcsLTE5OTY3NDY2NzMsLTIxMDE5Nzk4XX0=
+eyJoaXN0b3J5IjpbLTU5ODc2NzI5MiwxNjU4NDE2MjIsLTMyND
+Q3MzQ1OCwtMTI4NDU1MzAyNywtMTk5Njc0NjY3MywtMjEwMTk3
+OThdfQ==
 -->
