@@ -42,6 +42,7 @@ when you recall some in your past with awareness is fine. In scriptures never sa
 `Don't be worry about the past and don't be anxious about future.`
 
 when does mind recall (go back to object again and again) when ever you contact the object and that object gives either pleasure or pain. Depending on the intensity of pleasure or pain the mind will recall that object to that extend. 
+when the mind start generating the thoughts on the objects on its own that will lead to sangha  
 
 `sangas teṣhūpajāyate`
 `sangah` - attached to people or object is deadly it is the cause for your suffering. 
@@ -51,7 +52,7 @@ When our mind generates thoughts towards the objects we call it Dhyaihi but when
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc3NzYwODE2MSwxNjU4NDE2MjIsLTMyND
-Q3MzQ1OCwtMTI4NDU1MzAyNywtMTk5Njc0NjY3MywtMjEwMTk3
-OThdfQ==
+eyJoaXN0b3J5IjpbLTE2NDUzODY2OTAsLTc3NzYwODE2MSwxNj
+U4NDE2MjIsLTMyNDQ3MzQ1OCwtMTI4NDU1MzAyNywtMTk5Njc0
+NjY3MywtMjEwMTk3OThdfQ==
 -->
