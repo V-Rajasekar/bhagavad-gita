@@ -42,17 +42,19 @@ when you recall some in your past with awareness is fine. In scriptures never sa
 `Don't be worry about the past and don't be anxious about future.`
 
 when does mind recall (go back to object again and again) when ever you contact the object and that object gives either pleasure or pain. Depending on the intensity of pleasure or pain the mind will recall that object to that extend. 
-when the mind start generating the thoughts on the objects on its own that will lead to sangha  
+when the mind start generating the thoughts on the objects on its own that will lead to `sangas teṣhūpajāyate` the attachment will be produced
 
 `sangas teṣhūpajāyate`
 `sangah` - attached to people or object is deadly it is the cause for your suffering. 
 When our mind generates thoughts towards the objects we call it Dhyaihi but when the same thoughts become intense without awareness it gathers more strength then we get attachment to that any object or could be a person. 
 
+sangah is also means union becoming 
+
 `ūpajāyate` means something which is born or produced on its own.  Sanghah+jayate: The attachment that is born on its own without awareness.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NDUzODY2OTAsLTc3NzYwODE2MSwxNj
-U4NDE2MjIsLTMyNDQ3MzQ1OCwtMTI4NDU1MzAyNywtMTk5Njc0
-NjY3MywtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbMjAyMTUyOTcwNCwtNzc3NjA4MTYxLDE2NT
+g0MTYyMiwtMzI0NDczNDU4LC0xMjg0NTUzMDI3LC0xOTk2NzQ2
+NjczLC0yMTAxOTc5OF19
 -->
