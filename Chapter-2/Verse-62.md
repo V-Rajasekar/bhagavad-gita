@@ -48,13 +48,13 @@ when the mind start generating the thoughts on the objects on its own that will 
 `sangah` - attached to people or object is deadly it is the cause for your suffering. 
 When our mind generates thoughts towards the objects we call it Dhyaihi but when the same thoughts become intense without awareness it gathers more strength then we get attachment to that any object or could be a person. 
 
-sangah is also means union becoming unit with the person or object mentally. what ever happens to the person it happens to you as well. 
+sangah is also means union becoming unit with the person or object mentally. what ever happens to the person it happens to you as well as you got united with that person. (e.g) Healer, Social service people.
 
 `ūpajāyate` means something which is born or produced on its own.  Sanghah+jayate: The attachment that is born on its own without awareness.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI0MzExMjkxNCwtNzc3NjA4MTYxLDE2NT
-g0MTYyMiwtMzI0NDczNDU4LC0xMjg0NTUzMDI3LC0xOTk2NzQ2
-NjczLC0yMTAxOTc5OF19
+eyJoaXN0b3J5IjpbMzQ5MjQxNDcxLC03Nzc2MDgxNjEsMTY1OD
+QxNjIyLC0zMjQ0NzM0NTgsLTEyODQ1NTMwMjcsLTE5OTY3NDY2
+NzMsLTIxMDE5Nzk4XX0=
 -->
