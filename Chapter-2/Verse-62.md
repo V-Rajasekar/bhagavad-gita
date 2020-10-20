@@ -44,10 +44,12 @@ when you recall some in your past with awareness is fine. In scriptures never sa
 when does mind recall (go back to object again and again) when ever you contact the object and that object gives either pleasure or pain. Depending on the intensity of pleasure or pain the mind will recall that object to that extend. 
 
 `saṅgas teṣhūpajāyate`
+sangah - attached to people or object
+When our mind generates thoughts towards the objects we call it Dhyaihi but when the same thoughts become intense without awarness it gathers more strength then we call it as attachment.
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzA2MzUyNzYsLTMyNDQ3MzQ1OCwtMT
-I4NDU1MzAyNywtMTk5Njc0NjY3MywtMjEwMTk3OThdfQ==
+eyJoaXN0b3J5IjpbMjAwMzA0NzI4MCwtMzI0NDczNDU4LC0xMj
+g0NTUzMDI3LC0xOTk2NzQ2NjczLC0yMTAxOTc5OF19
 -->
