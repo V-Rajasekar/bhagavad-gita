@@ -52,9 +52,32 @@ When our mind generates thoughts towards the objects we call it Dhyaihi but when
 
 `2. sangah` is also means union becoming unit with the person or object mentally. what ever happens to the person it happens to you as well as you got united with that person. (e.g) Healer, Social service people.
 
+**sadhana tips:** 
 
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA4MDkwNDE2MiwtNzc3NjA4MTYxLDE2NT
-g0MTYyMiwtMzI0NDczNDU4LC0xMjg0NTUzMDI3LC0xOTk2NzQ2
-NjczLC0yMTAxOTc5OF19
--->
+what kind of sangah(associating) you need in your life?
+ - Choose what your are assocating with the books, the programs you watch. 
+
+*From attachment is born desire*
+
+when this uncontrolled attachment to a person or object mentally happens there borns `kamaka`. Kamaka means uncontrolled desire and its different from `itcha` (a fillfull desire). Kamaka is dangereous than itchas because it uncontrolled. Itcha sakthi is good one its like you setting your goal and achieving them in life. 
+
+`Kamaka` force is so much that will push you in action to occure an object at any cost even in(unrighteous way).  
+
+*From desire is born anger*
+
+Once you develop kamaka the next thing born in desire. The word desire in this context is Kamaka. Anger is one modification of desire. when ever you have kamaka (a desire to experience and possess something). There are 3 possibilities can be traced out.
+
+1. desire fullfilled
+
+when ever a desire is fullfilled you will enjoy it but its temporary state of enjoyment, but before go through the enjoyment you develop `low baha` (greed you want more). If you move from a rented house to your own house your desire fullfilled temporarly, after sometimes you start developing comparing your house with people who dont have house/smaller house and people having bigger house in this case *low baha* further develops you will become very arrogance towards people  who are lower than you and you will become very envious towards people who are having more than you. 
+you will develop a complex superiority towards people lower and inferiority towards people higher than you. You cannot be peaceful if you develop this complexes in life. 
+
+ 2. desire is unfullfilled 
+
+When ever your desire is not fullfilled you will become sorrow. 
+ 
+ 3. Desire can get obstructed.  
+
+why you get angry? when ever you have a desire you will have lot of expectations when those expectations are obstructed you become angry. There can be no anger without expectations and there can  be no expectations without kamaka(desire). 
+
+Don't have expectation but have wish. when the obstuction is little bit it is called irritation but when the obstruction becomes intense then that stage is called anger. when this energey of irritation is directed to somebody is called anger. when it is directed to yourself is called frustration. 
