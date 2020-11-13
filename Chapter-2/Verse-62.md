@@ -72,6 +72,10 @@ Once you develop kamaka the next thing born in desire. The word desire in this c
 when ever a desire is fullfilled you will enjoy it but its temporary state of enjoyment, but before go through the enjoyment you develop `low baha` (greed you want more). If you move from a rented house to your own house your desire fullfilled temporarly, after sometimes you start developing comparing your house with people who dont have house/smaller house and people having bigger house in this case *low baha* further develops you will become very arrogance towards people  who are lower than you and you will become very envious towards people who are having more than you. 
 you will develop a complex superiority towards people lower and inferiority towards people higher than you. You cannot be peaceful if you develop this complexes in life. 
 
+The moment you have matha(pride) the further development is very dangerous, you start miss using it the object(power, wealth), the more power, wealth you get you has to become more humble.
+
+There is one more thing called matsuriya(jealeous) you start developing a inferiority complex on people above you. 
+
  2. desire is unfullfilled 
 
 When ever your desire is not fullfilled you will become sorrow. 
@@ -81,3 +85,8 @@ When ever your desire is not fullfilled you will become sorrow.
 why you get angry? when ever you have a desire you will have lot of expectations when those expectations are obstructed you become angry. There can be no anger without expectations and there can  be no expectations without kamaka(desire). 
 
 Don't have expectation but have wish. when the obstuction is little bit it is called irritation but when the obstruction becomes intense then that stage is called anger. when this energey of irritation is directed to somebody is called anger. when it is directed to yourself is called frustration. 
+
+In this verse its mentioned from desire borns anger, but guruji jas explained the different modifications as mentioned above. fear, greed, pride, jealous, inferiority, depression, sorrow
+
+//TODO 
+Look at the source of your modifications? 
