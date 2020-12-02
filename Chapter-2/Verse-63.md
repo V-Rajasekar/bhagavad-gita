@@ -46,8 +46,28 @@ Example: A boy infatuated with a girl will be blind to the faults in her. True l
 
 6. Pain: A person plagued by moha is in a state of great mental agony. He is so acclimatized to it that he just does not realize it which is a very dangerous state. The master tries to shake the person out of that pain because that person makes no effort to come out of it. 
 
-Anecdote: A 'saint' walking out of a river after having a bath is accidentally touched by a person of a lower caste. The saint is enraged and tells him that he has to take a bath again because of the transfer of the other person's impurity. The lower caste man tells him that he had already taken a bath and thus he is not impure. But the saint points out to him that the impurity arises from this caste and even beats him for it. When all his anger is exhausted, he realises his actions and goes on to take another bath. As he comes out of the river, he finds the other man also coming out of the river. The man explains that he was beaten by a person lower than the lowest caste as the reason for his taking a bath. He makes the saint understand that anger had possessed him and that he had no awareness of himself when he was giving a beating. The 'saint' finally falls at the feet of the true saint.
-
 Buddha was compassionate to the entire humanity because he could understand the states of moha everyone was in. 
 
 Another story that Yogishri said last year that comes to me in this context (it was said in a different context though): When Buddha was giving a discourse to his disciples one day, a stranger came up to him, cursed him and spat in his face. The Buddha remained calm and did not react. All his disciples were furious at that man. The next day, the same man again showed up and this time begged for the Buddha's forgiveness. The Buddha asked whom he should forgive and explained to him that the person who spat on his face the previous day was someone else (someone possessed by anger) while the person asking for forgiveness is someone entirely different.
+
+when you surrender to your guru and to the infinite and practise your sadhana you will not be caught up with moha. 
+
+`smṛiti-vibhramaḥ` is a disease but in that problem itself lies a solution in that word smriti shakthi(increase presence of mind).
+
+`Tip: Increase presence of mind`
+
+```english
+when ever you get time start observing what is around you(e.g)things in your living room. Go in details of that observe it in detail and then close your eyes and try to recall this will increase the `smrithi`shathi in you the moha will loose his power in you.
+
+Great monks like Swami Ramakrishna, Vivekananda have practised it.It will give you sharpness and this helps smartness.
+```
+
+`Zen Story`
+
+```language
+A master was weighing flax seeds, and a student asked his master what is enlightment ? when do we know a person reached his enlightment stage?
+
+The master said this flax weighs 10 kg.
+
+The deeper message here is live in the presence is the true enlightment state.
+```

@@ -17,4 +17,5 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
 >4) When ever your effected by anything immedetiatley split the experience in to two. One is the triggering factor outside and other is the reaction with in you.
 >5) *I'm **not able**  to express my thoughts in a discussion or meeting*. 
 >**Instead say** "***I choose*** *to not to express my thoughts in a discussion or meeting*."  what ever you choose from your depth no force in the world can prevent you from doing that.
- 
+>6) Dont meet the problem half way let the problem meet you dont spin your opinion on that problem which basically agreegate it. Don't play a screen in your mind whether the other person will accept what your saying.
+>7) when ever you get time start observing what is around you(e.g)things in your living room. Go in details of that observe it in detail and then close your eyes and try to recall this will increase the `smrithi`shathi in you the moha will loose his power in you.Great monks like Swami Ramakrishna, Vivekananda have practised it.It will give you sharpness and this helps smartness.
