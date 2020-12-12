@@ -19,3 +19,14 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
 >**Instead say** "***I choose*** *to not to express my thoughts in a discussion or meeting*."  what ever you choose from your depth no force in the world can prevent you from doing that.
 >6) Dont meet the problem half way let the problem meet you dont spin your opinion on that problem which basically agreegate it. Don't play a screen in your mind whether the other person will accept what your saying.
 >7) when ever you get time start observing what is around you(e.g)things in your living room. Go in details of that observe it in detail and then close your eyes and try to recall this will increase the `smrithi`shathi in you the moha will loose his power in you.Great monks like Swami Ramakrishna, Vivekananda have practised it.It will give you sharpness and this helps smartness.
+>8) If you know which way you fallen then you automatically know which way to raise. As `Albert Einstein` he said
+ ```
+ Every problem has a solution, and the solution lies within the problem itself
+  ```
+  When your solving a problem penetrate fully and understand the problem, without understanding the problem fully when you try to solve the problem you will make mistakes.
+
+  Understand the concept and principle to avoid superfical solution.
+ >9) Start developing the `aspects of buddhi (verse 63)` so buddhi is not just gaining knowledge learn to analyze clear and learn to decide clearly and that awarness.
+ >10) Everytime your gaining knowledge don't close your mind by getting in to a feel yes, I know instead feel I begin to understand. 
+
+ 
