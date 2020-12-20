@@ -122,15 +122,21 @@ The third level of ignorance is beyond intellect that is I know, I understand, b
 
 For the first level ignorance (i.e) I don't know shravana was given that is listening and reading for gaining knowledge, for second level manana was giveen that is relfecting and for third level of ignorance(i.e) i dont have experience nidhidhyasana was given which is special yogic technic to imprint this wisdom in your mind.
 
-The three aspects of buddhi are 1. intellect 2. understanding(manana) 3. Returning to consicousness.
+The three aspects of buddhi are: 1. intellect 2. understanding(manana) 3. Returning to consicousness.
 
 ```language
 what is intellect ? 
-There are 3 main aspect of intellect `first aspect is your capacity analysis`, to see the pros and corns. the purpose of analysis is to make a decision. If you are go on analysis (over analysis) you are seeing pros and corns, but not able to make decision then its foolishness. so the `second aspect is decision making.`
+There are 3 main aspect of intellect: `Anaylze, Decision making, Awarness`
 
+`1. Intellect - Analysis`
+ `first aspect is your capacity to do analysis`, to see the pros and corns. the purpose of analysis is to make a decision. If you are go on analysis (over analysis) you are seeing pros and corns, but not able to make decision then its foolishness. so the `second aspect is decision making.`
+
+`2. Intellect - Decision making`
 when your developing analysis remember your analysis should help you to take a decision. Decision making is an important aspect of Leadership skills.
 
-`The third aspect of buddhi is awarness.` which is very important its a deeper sadhana, compare to other previous two aspect which is important inorder to deal with world.
+`3. Intellect - Awarness`
+
+`The third aspect of buddhi is awarness.` awarness means observing without judgemental. Awarness  is very important aspect while doing deeper sadhana, compare to other previous two aspect which is important inorder to deal with world.
 
 ```
 
@@ -138,11 +144,46 @@ when he says `smṛiti-bhranśhād buddhi-nāśho ` A person in moha he cannot a
 
 `Buddhi is not merely cramming up information you have to learn to analyse, learn to make a decision and awarness  `
 
+`2 Buddhi - Understanding` 
+The second aspect of buddhi is knowledge, so when your buddhi is sharp your ability to get the knowledge will be more. Every information you collect should be used to open the doors(i.e) explore. Always be an eternal student as tatraya says. 
 
-The second aspect of intellect is knowledge, so when your buddhi is sharp your ability to get the knowledge will be more. Every information you collect should be used to open the doors(i.e) explore. Always be an eternal student as tatraya says. 
-
-`Sadhana`
 ```Everytime your gaining knowledge don't close your mind by getting in to a feel yes, I know instead feel I begin to understand. 
 ```   
-
+`3 Buddhi - Reflection (Manna)`
 The third aspect of intellect is understanding and recalling that is called manana. the manna means the capacity to reflect/contemplate your understanding.
+
+ `Sadhana`
+- Find out where you need to analyze. Either people are highly impulsive they don't analyze at all they don't think at all instead they jump in to action other thing is go on analyzing without taking a decision.
+- Awarness don't become judgmental while observing your thoughts, pull yourself back to the center
+- Don't cramp for knowledge take time to digest your knowledge.
+  
+
+```proveb
+venashe kale viparita buddhi 
+```  
+This proverb is wrong as krishna says its `vipartia buddhi that raise to venashe kale`
+
+It is not because of Bad time you loss your buddhi. Its because you stop thinking that you get in to a bad time. 
+
+`buddhi-nāśhāt praṇaśhyati` from loss of intellect total destruction, so when you loss your intellect because of moha there will be total destruction the first destruction `nāśhāt` is losing individuality, second potential and third is invisible. 
+
+` 1. nāśhāt - Loss of individuality`
+
+Your individuality gets destroyed because when your buddhi is not function your descision will not be okay you will decide in a wrong way you will not do self analyze and find out what your good at if you can locate what your good at and focus success will come automatically.
+
+` 2. nāśhāt - Loss of Potential`
+Hanuman, Kumbakarna potential hanuman through his surrender to god Rama reattained his full potential where as Kumbakarna loss his potential by taking a boon/curse from lord bhrama that is sleeping 6 months, and take a 1 day break and again sleeping for next 6 months. It is because of Ravanas emotions, Kumbakarna was waken up in that 6 month sleeping time, and kumbakarna loss and die in the battle field.
+
+when Hanuman got back is power he said Jai ram all mu glory goes to my guru, my god he didn't attribute any power to himself he remained very very humble and the strenght of hanuman was in his humility. If you ask the achievers in life have you achieved your potential in your field, they say no i'm not achieved, if your more humble your your more strive to attain your potential whay your are capable of, the more you achieve 
+your potential the more will be the sava the contribution which you can make to the world.
+
+`Sadhana nāśhāt always strive for perfection`
+As Swami Vivekananda says what are you working for in life you should be useful to other, if your singer, yoga teacher make others happy if your doctor, engineer strive to achieve your fullest potential never be satisfied with a little bit of achievement there is a deeper reason if you develop this habit of not being satisfied, when you perform in life always strive to better your work. 
+
+what ever your doing today in your field go on upgrading yourself and become a better person. You don't achieve your potential either you becoming lazy or comparing yourself with others and in that process your potential is lost.
+
+` 2. nāśhāt - Invisible`
+when your moha your consciousness is completely caught up you donæt even suspect the existence of infinite within you. Moha takes you away from far far away. 
+`Sadhana` - Daily practise of meditation will make you to start making the visible of infinite(God principle) within you.
+
+
