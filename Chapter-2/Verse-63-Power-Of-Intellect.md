@@ -178,12 +178,21 @@ when Hanuman got back is power he said Jai ram all mu glory goes to my guru, my 
 your potential the more will be the sava the contribution which you can make to the world.
 
 `Sadhana nāśhāt always strive for perfection`
-As Swami Vivekananda says what are you working for in life you should be useful to other, if your singer, yoga teacher make others happy if your doctor, engineer strive to achieve your fullest potential never be satisfied with a little bit of achievement there is a deeper reason if you develop this habit of not being satisfied, when you perform in life always strive to better your work. 
+As Swami Vivekananda says "*what are you working for in life you should be useful to other*", if your singer, yoga teacher make others happy if your doctor, engineer strive to achieve your fullest potential never be satisfied with a little bit of achievement there is a deeper reason if you develop this habit of not being satisfied, when you perform in life always strive to better your work. 
 
-what ever your doing today in your field go on upgrading yourself and become a better person. You don't achieve your potential either you becoming lazy or comparing yourself with others and in that process your potential is lost.
+what ever your doing today in your field go on upgrading yourself and become a better person. You don't achieve your potential either you becoming lazy or comparing yourself with others and in that process your personality and your potential is lost.
 
-` 2. nāśhāt - Invisible`
-when your moha your consciousness is completely caught up you donæt even suspect the existence of infinite within you. Moha takes you away from far far away. 
+` 3. nāśhāt - Invisible` the infinite aspect within you becomes invisible. 
+when your in moha your consciousness is completely caught up you don't even suspect the existence of infinite within you. Moha takes you away far far away. 
+
+
 `Sadhana` - Daily practise of meditation will make you to start making the visible of infinite(God principle) within you.
+
+
+## Summary of Verse 62 and 63
+what is the ladder fall? Its all start with casual thoughts, you develop attachment(sangha) from attachment develops kamaka which is uncontrolled desires, and kamaha once you are caught up with various modification rises like  anger, fear, jealousy, greed, guilt, depression and sorrow, and then when this modification engulf you get in to the state of moha means delusion and once you get into moha he said the memory goes away and when that happens your entire buddhi shakti the intellectual power goes away buddhi-nāśhāt praṇaśhyati your finite and infinite aspect is destroyed.
+
+The principle behind verse 62 and 63 is all big issues starts with small problem in this case a casual thinking lead to the ladder fall, so never leave any small issues/activties unattended in your life. Attend to the finer details of life all the small small things like whether your keeping desk clean, your fresh grooming your hair all put together makes you a person.
+
 
 

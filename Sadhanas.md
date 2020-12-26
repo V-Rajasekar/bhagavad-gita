@@ -29,4 +29,12 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
  >9) Start developing the `aspects of buddhi (verse 63)` so buddhi is not just gaining knowledge learn to analyze clear and learn to decide clearly and that awarness.
  >10) Everytime your gaining knowledge don't close your mind by getting in to a feel yes, I know instead feel I begin to understand. 
 
- 
+ ## what is life ?
+  Our yogi's say life is `Anubhava dhara` means a flow of experiences. If you want your life to be wonderful then the flow of experience to be wonderful, and if you want the flow of experience to be wonderful then you have to ensure each and every experience wonderful. 
+
+   One way is to see your life as a whole and other way is to see your entire life as one experience, if you put your heart and soul in each of your experience then the entire life will be one of high quality. But what we do is ignore individual experience we ignore quality and more concern about the quantity. 
+
+   Dropping the tendency to rush through life without how your functioning at micro level(e.g) if a batsman play every ball properly automatically he will hit the centuries. This is the secret of life, so you should be your heart and soul in each small task.
+
+   Once the follower of Budhha asked about what is the origin of universe? Buddha said you should penerate first. He took a flower and asked his students to mediate on the flower, the students mediated on the flower by closing their eyes. Buddha asked what did you see they said we mediated on the flower look petals, its color and smell. Buddha you should go further deeper. where does this flower come from its from tree, and then its origin is from a seed. By the end of the origin you will get to the origin of universe. 
+    
