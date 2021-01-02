@@ -192,7 +192,8 @@ when your in moha your consciousness is completely caught up you don't even susp
 ## Summary of Verse 62 and 63
 what is the ladder fall? Its all start with casual thoughts, you develop attachment(sangha) from attachment develops kamaka which is uncontrolled desires, and kamaha once you are caught up with various modification rises like  anger, fear, jealousy, greed, guilt, depression and sorrow, and then when this modification engulf you get in to the state of moha means delusion and once you get into moha he said the memory goes away and when that happens your entire buddhi shakti the intellectual power goes away buddhi-nāśhāt praṇaśhyati your finite and infinite aspect is destroyed.
 
-The principle behind verse 62 and 63 is all big issues starts with small problem in this case a casual thinking lead to the ladder fall, so never leave any small issues/activties unattended in your life. Attend to the finer details of life all the small small things like whether your keeping desk clean, your fresh grooming your hair all put together makes you a person.
+The principle behind verse 62 and 63 is all `big issues starts with small problem` in this case a casual thinking lead to the ladder fall, so never leave any small issues/activties unattended in your life. Attend to the finer details of life all the small small things like whether your keeping desk clean, your fresh grooming your hair all put together makes you a person.
 
+A yogi gives more than is expected from him, similarly in any task your doing give more than what is expected from you in the managment jorgen this is called `Exceeding the expectation`
 
 

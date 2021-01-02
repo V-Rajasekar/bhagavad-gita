@@ -37,4 +37,9 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
    Dropping the tendency to rush through life without how your functioning at micro level(e.g) if a batsman play every ball properly automatically he will hit the centuries. This is the secret of life, so you should be your heart and soul in each small task.
 
    Once the follower of Budhha asked about what is the origin of universe? Buddha said you should penerate first. He took a flower and asked his students to mediate on the flower, the students mediated on the flower by closing their eyes. Buddha asked what did you see they said we mediated on the flower look petals, its color and smell. Buddha you should go further deeper. where does this flower come from its from tree, and then its origin is from a seed. By the end of the origin you will get to the origin of universe. 
-    
+
+   `when ever you want to do something ask yourself will this action will be good for me good for others also if the answer is yes do otherwise avoid it`
+
+   > Fix a goal, follow your swadharma and formulate a schedule to direct your likes and dislikes to make a decision and take a action. 
+
+ 
