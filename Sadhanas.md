@@ -42,4 +42,6 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
 
    > Fix a goal, follow your swadharma and formulate a schedule to direct your likes and dislikes to make a decision and take a action. 
 
+   ` Do your duties properly and you will get your rights and rewards` 
+
  

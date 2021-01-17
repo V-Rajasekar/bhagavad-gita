@@ -52,13 +52,43 @@ Keepup your commitments, commitment to yourself and others
 
 - `Fixing time slot` will help you to move from one experience to another experience like 6 AM I will do sadhana kriyas, 6:30 AM will listen Yoga Sankitan.  
  
-`vidheyātmā` The first meaning of vidayah that which has to be done. How do you conquer your likes and dislikes by focusing on your duties that which has to be done means the `regular duties (nithya karma)`, `naimatika karma (occasional special duties)`.
+1. `vidheyātmā` The first meaning of vidayah that which has to be done. How do you conquer your likes and dislikes by focusing on your duties that which has to be done means the `regular duties (nithya karma)`, `naimatika karma (occasional special duties)`.
 `Sadhana`
 > Train you mind to start liking your duties, and do your duties. 90% of them matches. Only 10% there may be a clash in those areas you have to exercise your willpower. 
 
 ```language
-Story: A boy who grudged(dislikes) chemistry, by doing mediation before starting reading the lessons developed itcha sakthi over a period of time he developed the willpower and started liking the chemistry subject, and started exploring and toppped in chemistry
+Story: A boy who grudged(dislikes) chemistry, turned to like and scored toppper in chemistry
+
+A youngster is doing very well in maths, and physics, but not chemistry. He asked how to score well in chemistry. Yogashri said every day before you study chemistry close your eyes and do a deep breathing and first form the connection with the subject in the meditative state use your itcha shathi and willpower to say i love chemistry and I want to explore this and a desire to study this subject. He practised, surrender full in the 4th week he started liking some aspect in the chemistry and that let him to like chenistry, he later topped in chemistry
 ```
 > Freedom is not in doing what ever you like. Freedom is in liking what you do
 
- 
+```
+ Na gazhtapattu uzhaichen, say istapatu uzhaichen
+ Don't do things as a drudgery rather do it with enjoyment. 
+ ```
+
+`Four step to master vidayah(that thing which has to be done)`
+ 1. Recognize various roles in your life, and then see what are the duties you have to do, As a spouse, parent, employee, student.
+ 2. Fullfill your duties one who conquers the mind and who puts the effort will become vitaatma.
+ 3. Using your willpower exercise your willpower and focus on your duties where there is a mismatch between your likes and dislikes.
+ 4. Using your itcha shathi like your duties and fullfill all  your responsbilites in your life.
+   
+When you contact the outside world so many factors may fliter to you away from the spirtual path, how do you approach the experience see how can you enrich and support spirtual growth. You have to do the Yoga sangeethan sadhana daily, other thing the sadhana principle discussed in the session follow the sadhana principles. Make a start in the inspiring sadhana, the entire nature will come and help you.
+
+when your mind is not trained, it will be come either reactive or nonreactive. Einstein talked about inertia He says `when an object is in rest, and an object moving in a constant face both are in inertia state` When you are living a mechanical live without any improvement that is also inertia. 
+
+
+We human being comes from animal(ape), so naturally we have reactive and nonreactive depending on the situation. vide atma means one whose mind is not reactive, one who achieved self master his reactions, unless you master your reactions who will not able to choose the response at any given situation.
+
+Remember when ever makes you angry he won the battle, Dont be confuse with becoming angry or passive, I'm not saying you be passive when somebody keeps pushing you back, you can show anger, but it should be under your control with proper atitude.
+
+Every one has many role in their life like Husband, father,  son and employee. Each role has their own rights and duties. We are constantly focusing on our rights only there's nothing wrong but if your entire focus is on rights over a period of time you will loose peace. 
+
+` Do your duties properly and you will get your rights and rewards` Sometimes your likes and dislikes blend with your duties, sometime they don't, so use your willpower to do the duties. Train your mind to do your duties with full enjoyment.
+
+2. `Vidaya means obedient.` Vide atma means one who made is mind obedient to him. Mind spins for various reason, if your mind is in bad mood if you say i accept your in bad mood, but if you make your mind to focus on the thing you want to do it then your vidayaha. 
+
+How to make your mind obedient ? If your obedient to your consciousness then you can control your mind. Your consciousness will tell which you the higher and lower in every aspect of your life, so be obedient to your consciousness. (e.g) When you say at 7:00 AM i will follow the Bhagavat Gita course. Develop the pranashathi to inspire your mind and obey your sayings. 
+
+1. `Vidaya means being dependent.` One who is completely dependented to the infinite. You can seed a seed and nourish it, but at the end it higher infinite makes it to a plant and then a tree. We are dependent now on the worldly things to be peace and happy. Instead of the worldly things we should surrender to the higher
