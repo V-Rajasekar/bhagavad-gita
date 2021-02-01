@@ -91,4 +91,40 @@ Every one has many role in their life like Husband, father,  son and employee. E
 
 How to make your mind obedient ? If your obedient to your consciousness then you can control your mind. Your consciousness will tell which you the higher and lower in every aspect of your life, so be obedient to your consciousness. (e.g) When you say at 7:00 AM i will follow the Bhagavat Gita course. Develop the pranashathi to inspire your mind and obey your sayings. 
 
-1. `Vidaya means being dependent.` One who is completely dependented to the infinite. You can seed a seed and nourish it, but at the end it higher infinite makes it to a plant and then a tree. We are dependent now on the worldly things to be peace and happy. Instead of the worldly things we should surrender to the higher
+3. `Vidaya means being dependent.` One who is completely dependented to the infinite. You can seed a seed and nourish it, but at the end it higher infinite makes it to a plant and then a tree. We are dependent now on the worldly things to be peace and happy. Instead of the worldly things we should surrender to the higher
+4. `Atma` Your entire life is centered on you, to grow spirtually you have to pull your consciousness from world centers like Sense object, name and fame e.t.c and center your self (atman). If your consciousness is centered on name and fame, then eventhough you help others its intention is to get the fame. if a persons pegged on money he will be very calculative in life (e.g) spending money for his dependent.
+
+##### //TODO See where your centered
+1. Are you centered to money, name and fame?
+2. Are you centered to sense pleasure?
+3. Are you centered around your relationship like(spouse, childrens, fame)?
+4. Are you centered with work?
+
+You ultimate your goal is not to earn money, name and fame, new relationship rather its the self improvement or self purification you have to pull the center of your life from the worldly things to jeeva atman, and centering your consciousness on self development/improvement. you still contact the world you will continue to earn money, name and fame but you do that for your self improvement.
+
+one who has self mastered he will attains the peace `prasādam adhigachchhati`. 
+
+The dimension of the `prasadam`
+
+1. First prasadam is being clamness it means composure of mind this can be achieved by doing sadhana regularly. 
+2. Clearness of the intellect. you will be able to think clearly your decision making will be very very sharp. 
+  
+   " In tamasic way which means your unreactive your thinking faculty will not be clear you will have no thinking at all. A person with tamasic will not think at all"
+
+   "If you rightly understand it you will be saatva who has clearness, and take right decision"
+3. Prasadam also mean gift and favourism. Everything that is given to you in life is by god, so don't complain but rather show your gratitude to the god. (e.g) Don't complain or compare the prasadam given in temple.
+
+How does a person get the calmness, clearness, and gift/favourism ? 
+
+Its by doing the sadhana & practise them in my life. Also remember every aspect in your life is given as a gift by the supreme power like job, money, parenthood, so be a humble receiver and don't complain those prasdham. 
+
+When you be a humble and do gratification you receive the gods grace that will make you even a better person. 
+
+Never have a complaining attitude, always look for something positive things. An untamed ego makes you to complain and that complain goes on, so in life where ever you're calm your mind and consider everything given in life is a gift of god.
+
+when ever you receive something your ego comes and takes you "I have received it", when you do sadhana the focus then shifts from you (the ego) to the person giving to you, you develop gratitude.
+The moment you start doing gratitude you're doing your sadhana
+
+when your giving something your ego comes and make you to think "I am giving", again when you do sadhana the focus shift to the person receiving it, that someone is there to receive and you say your gratitude. When you keep practising the sadhana then you attain the state there is "No giver nor receiver" its only the infinite.
+
+

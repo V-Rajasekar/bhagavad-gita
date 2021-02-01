@@ -44,4 +44,5 @@ http://www.yogamag.net/archives/2009/lnov09/prajna.shtml
 
    ` Do your duties properly and you will get your rights and rewards` 
 
- 
+Don't center your consciousness to worldly things like name. fame and sense objects. When anything goes wrong outside the world your mind gets disturbed, if  you say isn't it natural ? if we entertain this philosphy your growth will get stunned it is not where your are that matters but what direction are you taking whatever level you are in as long as your improving day by day as long as you becoming better person your growing spirtually then its fine. if you stop growing then there will stagnation there will be decay and death.
+The natural itself is moving running water, breeze, the planet and sun is revolving and the entire galaxy is revolving
