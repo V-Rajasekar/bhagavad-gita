@@ -123,7 +123,7 @@ When you be a humble and do gratification you receive the gods grace that will m
 Never have a complaining attitude, always look for something positive things. An untamed ego makes you to complain and that complain goes on, so in life where ever you're calm your mind and consider everything given in life is a gift of god.
 
 when ever you receive something your ego comes and takes you "I have received it", when you do sadhana the focus then shifts from you (the ego) to the person giving to you, you develop gratitude.
-The moment you start doing gratitude you're doing your sadhana
+The moment you start doing gratitude for everything you're doing your sadhana and it started the real purification.
 
 when your giving something your ego comes and make you to think "I am giving", again when you do sadhana the focus shift to the person receiving it, that someone is there to receive and you say your gratitude. When you keep practising the sadhana then you attain the state there is "No giver nor receiver" its only the infinite.
 
