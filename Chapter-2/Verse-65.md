@@ -53,4 +53,35 @@ There are 3 stages to the clamness and sharpness of mind
 3. `Calm mind` (sathvik) A mind in state of calmness. Externally both stage 1 and Stage 3 are looks same. The difference b/w this 2 stages is a person who is in calm mind he fully understand what you are saying and let it go where as in stage 1 unreactive mind he is intellectually sleeping. 
    -    He will not philosophize unnecessarily 
    -    His decision make is quick and clear way
-   
+   -    Very pleased and delighted and very pleasant personality
+
+`A person who develops purity and make his/her mind calm and   also the intellect is sharp can achieve anything in the life.`
+How some people are agitated but they are still successful? Because there successful is relativly higher to others because of some kind of focus they do or because of their previous karma.    
+
+### _14-Feb-2021_
+
+` prasanna-chetaso` prasanna means tranquility calmness of mind. The second dimension also means being pleased, being delighted. You can become very pleased person to others only when you pleased by yourself. 
+Begin pleased with own self comes from uniqueness of one self. Do not compare yourself with others. Every person has a uniqueness your the part of the entire cosmos. A forest filled with trees and river, a desert both have their unqiue beauty. 
+
+The moment you start comparing with others you move away from ` prasanna-chetaso` and you become more agitated rather than peaceful. 
+
+what is separating you from the cosmos it is your own ego. when you drop your ego the dividing line drawn by the ego disappears.
+
+the third dimension of prasanna means when something is _propitiated_ when something is sooothened, or pacifying something is we are talking about something which is agitiated. Here its the restless mind.
+
+Pickup things which will soothen your mind. like TV program, music, food, colours.
+
+prasana also means working for others welfare. when you truly thing about the welfare of others person those vibrations will come million times more with more blessings, so being kind to other is not weak quality that doesn't mean you neglect yourself 
+when ever you interacting to others try to do service making other people happy. Always be kindness to other.
+
+when you always think in terms of others welfare now you will grow automatically others. 
+- If you help peoples to achieve their goals you will achieve your goals because you receive help from others.
+
+By practising the above principle your aura expands and you become peaceful, calm mind and sharp intellect and then he says 
+`buddhiḥ paryavatiṣhṭhate` follwing are the dimensions
+1. the intellect becomes firm to make good decision. 
+2. Your intellect should be very steady. once who have a fixed  goal you have to practise it steadly. the more steady your in life you will be more successful.
+3. Expanding and filling the intellect. The intellect role is discriminating things like its black and its white. By sadhana
+your thinking become so deep and subtle to differentiate what is permanent and impermanent? what will give you happiness?
+Don't restrict yourself attach to religion, cast because your love will be restricted to those boundaries.
+ 

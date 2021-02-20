@@ -48,3 +48,7 @@ Don't center your consciousness to worldly things like name. fame and sense obje
 The natural itself is moving running water, breeze, the planet and sun is revolving and the entire galaxy is revolving
 
 `Do your actions happly`. When your in action do it with full happiness. when you speak to someone do it with happiness.
+
+> Don't look for profit or gains or success without effort.
+
+> `A person who develops purity and make his/her mind calm and   also the intellect is sharp can achieve anything in the life.`
