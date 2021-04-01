@@ -9,7 +9,7 @@
 `In peace there arises the destruction of one's sorrows in totality.
 Indeed(when) the mind in tranquil, the intellect quicky becomes firm.`
 
-Verse 65 gives the motivation to practise the spirtual path and do sadhana.When you understand the value fully who will automatically motivate yourself and practise the priniciples/sadhana. The purification is an infinite process day after day so you need tremendous motivation to continue the sadhana.
+Verse 65 gives the motivation to practise the spirtual path and do sadhana. When you understand the value fully who will automatically motivate yourself and practise the priniciples/sadhana. The purification is an infinite process day after day so you need tremendous motivation to continue the sadhana.
 
 When peace arises it will destroy the sorrow in totality, here totality means both the quality and quantity. It will remove the seeds of the sorrow and continue to be in peace and calm mind. Along with the peace arise no sorrow, and stress this is you call as happiness.
 
@@ -60,7 +60,7 @@ How some people are agitated but they are still successful? Because there succes
 
 ### _14-Feb-2021_
 
-` prasanna-chetaso` prasanna means tranquility calmness of mind. The second dimension also means being pleased, being delighted. You can become very pleased person to others only when you pleased by yourself. 
+`prasanna-chetaso` prasanna means tranquility calmness of mind. The second dimension also means being pleased, being delighted. You can become very pleased person to others only when you pleased by yourself. 
 Begin pleased with own self comes from uniqueness of one self. Do not compare yourself with others. Every person has a uniqueness your the part of the entire cosmos. A forest filled with trees and river, a desert both have their unqiue beauty. 
 
 The moment you start comparing with others you move away from ` prasanna-chetaso` and you become more agitated rather than peaceful. 
@@ -78,10 +78,23 @@ when you always think in terms of others welfare now you will grow automatically
 - If you help peoples to achieve their goals you will achieve your goals because you receive help from others.
 
 By practising the above principle your aura expands and you become peaceful, calm mind and sharp intellect and then he says 
-`buddhiḥ paryavatiṣhṭhate` follwing are the dimensions
-1. the intellect becomes firm to make good decision. 
-2. Your intellect should be very steady. once who have a fixed  goal you have to practise it steadly. the more steady your in life you will be more successful.
+`buddhiḥ paryavatiṣhṭhate` means the intellect expand your personality. The different dimension of it is as follows
+
+1. The intellect becomes firm to make good decision. 
+2. Your intellect should be very steady. Once who have a fixed  goal you have to practise it steadly. the more steady your in life you will be more successful.
 3. Expanding and filling the intellect. The intellect role is discriminating things like its black and its white. By sadhana
 your thinking become so deep and subtle to differentiate what is permanent and impermanent? what will give you happiness?
-Don't restrict yourself attach to religion, cast because your love will be restricted to those boundaries.
+
+Never say I understood, I know everything that will be the end of your intellect. Always be an eternal student always look forward to learn new things.
+
+Don't restrict yourself attach to religion, cast and boundaries because your love will be restricted to those boundaries.
  
+A person with calm mind and sharp intellect can acquire anything in the world and the higher wisdom. He will become a successful person in his/her life. Eventhough you have acquired Technical skills required to do  your job through the calm mind and sharp intellect you can use that skills.
+
+There is a direct relationship between mind(emotions) and logical mind (intellect). You have to develop both the emotions and intellect because in certain areas emotions is used and in certain areas intellect is used.
+
+`Practical Tips`: How to practise calm mind and develop sharp intellect ?
+1. Listening to yoga sangithan and doing sadhana every day.
+2. Meditations.
+3. Use your intellect first before expressing your emotions. Through intellect you will know the physcology of other person.
+
