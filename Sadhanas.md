@@ -52,3 +52,9 @@ The natural itself is moving running water, breeze, the planet and sun is revolv
 > Don't look for profit or gains or success without effort.
 
 > `A person who develops purity and make his/her mind calm and   also the intellect is sharp can achieve anything in the life.`
+
+what is the best form of wealth which you should occur ? which solves all the issues in your life ?
+It's the ancient wisdom. A person with calm mind and sharp intellect can acquire the worldly wisdoms that is wealth, relationship, knowledge. Only through the sharp mind one can know the physcology of other person.
+
+> `Enjoy small small experiences in life then the whole life will be very happy.` 
+> `The more passionate you are about what ever your doing the more successful you'll be your relationship will be wonderful you'll start spending quality time with your friends and family.`

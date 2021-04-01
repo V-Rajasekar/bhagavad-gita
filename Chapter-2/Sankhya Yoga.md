@@ -7,4 +7,6 @@
 
 > The chapter summarizes the Hindu idea of rebirth, samsara, eternal soul in each person (Self), universal soul present in everyone, various types of yoga, divinity within, the nature of Self-knowledge and other concepts
 
- 
+ verse 65 and verse 66 -  the motivation for doing sadhana.  
+ -  Verse 65 By doing sadhana your mind become calm and your intellect become sharp and their benefit
+ - Verse 66 Life will be much better if you do this things it tells what you miss if you don't do this
