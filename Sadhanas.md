@@ -58,3 +58,11 @@ It's the ancient wisdom. A person with calm mind and sharp intellect can acquire
 
 > `Enjoy small small experiences in life then the whole life will be very happy.` 
 > `The more passionate you are about what ever your doing the more successful you'll be your relationship will be wonderful you'll start spending quality time with your friends and family.`
+
+*When you do things with doubt then that action doesn't have any power.*
+
+>*Your atitude measures altitude*
+
+> Practise remember all the positive things happen today, and do gratitude  before you go to bed and after you awake do gratitude for all the good things the god has given.
+> You might have a desire, but your desire comes to true when your deservable person for it. Here the effort thats matter.
+> 

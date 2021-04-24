@@ -41,3 +41,44 @@ When it comes to applying this principle on an any given situation you have to c
 
  Let us say your working hard in your office and the stress is too much, so much of task is there and stress is building and your unable to handle the stress, so much of work, so much of task is there to complete it in limited time.
  First ask what is your goal? My goal is i want to complete all these tasks within this given time. what is your level now? My level now is i'm worked up stressed, next ask the question among this dimension which dimension i have to use to reduce the stress.One might be pranic level doing a deep breath to reduce the stress, next organizing the work that is giving a time slot for each task (i.e) from this time to this time i will work on this task.
+
+Bhavana everything you do in your life do with full bhav, means full emotion. Bhav has 3 dimension number one is feeling, second devotion, third is faith. The law is whatever your bhav is that is what your and what ever your is what you get in life. If your positive you get positive things in life. The central thing is bhavana.
+
+When the emotion is directed to the world is called love. when the emotion is direct to the higher is devotion. The more devotion you have you have more faith with faith you can develop so much confident and achieve anything in life.
+
+*When you do things with doubt then that action doesn't have any power.*
+
+what ever your bhavana is that is what your are and your bhavana will determine how high you will rise in life. A person who put their heart and sould in their field they will succeed in that field. 
+
+`Practical principle to apply bhavana`
+
+1.  First of all do all the activity with feeling. Either don't do it or do it with properly.
+2.  Work is worship, It's not just the passion but also do it with full devotion. Everything your doing take it as an offering to god.
+3.  Faith, start fixing the goal and let it be practical so that you achieve it. Have faith in yourself and the infinite.
+
+`Bhavana means thought,thinking` - We said bhav means atitude which is a combination of your thought and emotion. These thought + emotion give rise to two things one is your atitude and other is the intention.
+
+In every activity your intension should be pure. If not i will put effort to purify the intension.
+
+`Bhavana means observing, meditation` - You need to learn become observative in life. When your lazy your observation will be less. Whenever you get some spare time your mind is immediately is flooded with some negative things happened to you. To avoid this in the spare time observe your actions in your daily day to day 
+activities, how your behaving with others. what are the positive things happened to you today ? By remembering the postive things happened to your life you will develop positive energy.
+
+
+`Bhavana means remembrance` - Once you start developing the observation, then you consciousnesly choose the things you need to remember. Today, the capacity to develop the remembrance is not under your control, you generaly remember the negative things.
+
+Mostly the mind will be picking lot of negative things, but The moment you become alert a keen observer and you realise it is harmful to me and its good for me so you will concisously pick those good things and you will be remember it. 
+
+when every someone does good to you, don't forget in your life time. But when somebody does something wrong to it you forget that in that second. 
+
+How is it even possible? As a humanbeing you have the choice of action, so when ever someone does good thing to you consciuosly bring that gratitude the more feeling you bring you will remember it. Similarly when someone does bad to you do the sadhana and release it during the daily sadhana the more successful doing this execise your bhavana will develop.
+  
+`Bhavana means zest in live, spark in the live` you should not live a dry live. Observe the babies action in his/her every little thing there is a spark. Where does this spark coming? Its coming from you.The bhavana is something is acquired internally that is inherited from the infinite. Its within you if your want to achieve something in your life, if you have the intension to achieve the goal you will achieve it. 
+when your bhavana is so intent no force in the universe can stop you from achieving it. 
+
+`Bhavana means scent, add fragrance` It's not enough if you do something in life but you need to strive to create a value in life in whatever it is that you're doing in life. If your working in a company, or running a business here what value are you creating for the company or the customer. As person mature and goes old you should become more graceful in life.
+
+for the one who has no bhavana there is no peace. For the person without peace how can there be happiness? If your not peaceful then something wrong with you're bhavana. check your bhavana on that area, your relationship with others.
+
+The verses in Bhagavat gita talks about one principle and then talks of the effect of that principle, and then that effect becomes a cause for the next principle (e.g) First he says yugta (united) that is the cause and then intellect and bhavana are the effects. and now if you develop bhavana, the bhavana itself becomes the cause for the next effect peace, and the peace itself become the cause for the effect success. 
+
+As your bhav so your, whatever you are that is what your life is going to be, so today everything is happening to your life is the effect and what is the cause the cause is within you the bhavana, if something is not your liking instead of blaming something or blaming something outside immediately check your bhavana, somewhere something would have gone wrong.
