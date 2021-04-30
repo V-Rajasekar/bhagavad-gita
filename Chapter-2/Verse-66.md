@@ -81,4 +81,33 @@ for the one who has no bhavana there is no peace. For the person without peace h
 
 The verses in Bhagavat gita talks about one principle and then talks of the effect of that principle, and then that effect becomes a cause for the next principle (e.g) First he says yugta (united) that is the cause and then intellect and bhavana are the effects. and now if you develop bhavana, the bhavana itself becomes the cause for the next effect peace, and the peace itself become the cause for the effect success. 
 
-As your bhav so your, whatever you are that is what your life is going to be, so today everything is happening to your life is the effect and what is the cause the cause is within you the bhavana, if something is not your liking instead of blaming something or blaming something outside immediately check your bhavana, somewhere something would have gone wrong.
+As your bhav so your, whatever you are that is what your life is going to be, so today everything is happening to your life is the effect and what is the  cause is within you the bhavana, if something is not your liking instead of blaming something or blaming something outside immediately check your bhavana, somewhere something would have gone wrong.
+
+"Yatha Bhavah, Tatha Asi". So we are the creator of our own destiny. It's not the planets defining our life, rather it is our actions and our bhavana that defines where we reach. Our actions are the sole causes for all the effects that we reap in our life.
+
+ The chant of Shantithi, in the end of Om Sahanava Bhavatu. The reason we chant Om Shantihi three times is to negate the three disturbances Cosmic, External and Internal. 
+
+Dimension of Shanthihi
+1. Pacification - Appeasement - When something is pacified then that is in a state of shanthihi. 
+When the mind develops a desire for something, it gets into a state of agitation. Shanthihi means we pacify those agitations of the mind. It is not only when we have desire but throughout the day when we observe our mind we see that we go through various experiences that also affects our state of mind.  We need to pacify our mind when it faces such experiences.
+
+2. Calmness- Tranquility- When the mind is in a state of rest. The first and second dimension go hand in hand. When we pacify the mind it becomes calm.
+
+3. `State of rest and ease` When the mind is in a state of rest or ease then that is called Shanthih. Shantihi comes from within and we have the power to not let any other external thing to come and disturb that peace. That power is in dormant stage right now. Through sadhana we need to awaken that.
+
+Our body should be in a state of motion, and the mind in a state of Shanthihi. What ever the situation you might be in your life if you are over worked, not having a good relationship you must understand who can't fix the external factors which is disturbing your mind and keeping you away from your goal or happiness. You have to adapt according to the situation and overcome those difficults they are not the issues, but an oppurtunity to become stronger in your life. 
+
+Next what is the permanent solution to all the stress and agitation ? To study that next dimension of shanthi `Settlement of difference` means resolving all the issues in your life. whenever you go through the experience once the experience ends externally you move to an another experience physically, but the mind does not move away from the previous experience, depending the prev expereince the mind goes on thinging about it and the mind absorbs those expereince and creates impressions. 
+This impression also from your past karmas. Settlement of difference means going deep within yourself and removing all those impressions.
+
+`Prati Prasav Sadhana` is a highly advanced sadhana to remove those karmic blocks or impressions. When a child is born it is prasav. Prati-prasav means you are again born in the memory, you go back to the very birth, the trauma when you were born, and you live it again. Remember, you don't remember it, you live it, you relive it again. this is a very, very significant process, the process of prati-prasav.
+
+(e.g) A lady has a fear of eye opening dolls and she also had a dream where chukky doll comes stap her with a knife this is because of the past memories, she practised the  Prati-prasav sadhana and removed those past memories. 
+the whole message. Don't live like a sleepy man, or a drunkard living in a hypnosis. Be conscious of whatsoever you are doing. Do it, but do it with full consciousness. Suddenly you will see many things disappear.
+
+ Method to begin with: Daily in the night while going to bed for sleep go back in a flashback of what all has happened throughout the day , like before going to sleep you were having dinner , before that you were watching TV, before that you were driving back from office to home etc ,keep on going back just as in case of rewind button when you are playing something, till you get to the point when you got up in the morning.After some days of practice, you will start going back farther into your past ,correcting it.
+
+`Shanthi means good fortune` When you remove all your karmic blocks and your mind is calm and tranquile, you receive the good things and good fortune in life.
+
+
+

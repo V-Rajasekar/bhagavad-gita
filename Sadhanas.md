@@ -65,4 +65,4 @@ It's the ancient wisdom. A person with calm mind and sharp intellect can acquire
 
 > Practise remember all the positive things happen today, and do gratitude  before you go to bed and after you awake do gratitude for all the good things the god has given.
 > You might have a desire, but your desire comes to true when your deservable person for it. Here the effort thats matter.
-> 
+> Start looking at life as an oppurtunity to grow, and not as a difficult to pull you down.
