@@ -66,3 +66,6 @@ It's the ancient wisdom. A person with calm mind and sharp intellect can acquire
 > Practise remember all the positive things happen today, and do gratitude  before you go to bed and after you awake do gratitude for all the good things the god has given.
 > You might have a desire, but your desire comes to true when your deservable person for it. Here the effort thats matter.
 > Start looking at life as an oppurtunity to grow, and not as a difficult to pull you down.
+> To be peaceful and happiness you have to practise this three aspects first prasadam that is accepting the things as it is, if you see a cow you pat, but not the same thing you do for a scorpion or snake because you asses it and change yourself how to interactive with it. But we humanbeing fail to asses the fellow humanbeings
+we want the other person or things to behave as we expect it. you should reverse the process.
+Second Prasanna means brightness, you accepted the things but you shouldn't passive (e.g) you assess and accept your room is not clean, then you should put effort to clean it similarly in any part of your life if you if you see a problem assess and take action. Next Shanthi means calmness when your prasanna don't be too excited, but do things in peacefully.

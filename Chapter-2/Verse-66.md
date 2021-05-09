@@ -4,8 +4,10 @@
 
     nāsti buddhir-ayuktasya na chāyuktasya bhāvanā
     na chābhāvayataḥ śhāntir aśhāntasya kutaḥ sukham
+  
 
-There is no intellect for the one who is not united; And for the one who is not united there is no faith; And for the one who has no faith there is no peace. For the person without peace how can there be happiness?     
+There is no intellect for the one who is ayukta and for the one who is ayukta that is the one who is not united there is no bhavana for the one who has no bhavana there is no peace. When you don't have peace you cannot enjoy 
+anything in the life, you can neither enjoy the world nor the higher. 
 ```
 
 "An one eye man is the king of blind kingdom" never thing you have achieved so much in life because the achievement you have achieved is negligable when compared to the human potential. Set a higher goal or higher reference point within yourself never set a reference point outside the world like refering or comparing to a person because that will disturbe your mind and you will never be peaceful. 
@@ -107,7 +109,10 @@ the whole message. Don't live like a sleepy man, or a drunkard living in a hypno
 
  Method to begin with: Daily in the night while going to bed for sleep go back in a flashback of what all has happened throughout the day , like before going to sleep you were having dinner , before that you were watching TV, before that you were driving back from office to home etc ,keep on going back just as in case of rewind button when you are playing something, till you get to the point when you got up in the morning.After some days of practice, you will start going back farther into your past ,correcting it.
 
-`Shanthi means good fortune` When you remove all your karmic blocks and your mind is calm and tranquile, you receive the good things and good fortune in life.
+`Shanthi means good fortune` When you remove all your karmic blocks and your mind is calm and tranquile, you receive the good things and good fortune in life.`Shanthi means sukam` When your mind is calm every experience in life will be peaceful and happiness. It is the bhavana which gives the calmness, so do with full bhavana positive vibration in your action.
+`Ashanthi` is opposite of shanthi. It gives two things one is depression another is over excitement, both will make you unhappy, through the sadhana you can align to the center.
+
+
 
 
 
