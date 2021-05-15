@@ -69,3 +69,6 @@ It's the ancient wisdom. A person with calm mind and sharp intellect can acquire
 > To be peaceful and happiness you have to practise this three aspects first prasadam that is accepting the things as it is, if you see a cow you pat, but not the same thing you do for a scorpion or snake because you asses it and change yourself how to interactive with it. But we humanbeing fail to asses the fellow humanbeings
 we want the other person or things to behave as we expect it. you should reverse the process.
 Second Prasanna means brightness, you accepted the things but you shouldn't passive (e.g) you assess and accept your room is not clean, then you should put effort to clean it similarly in any part of your life if you if you see a problem assess and take action. Next Shanthi means calmness when your prasanna don't be too excited, but do things in peacefully.
+
+> You should curd the tendency of the senses to go on their own, When you fix a goal, a plan or program then the senses will not go on their own. 
+
