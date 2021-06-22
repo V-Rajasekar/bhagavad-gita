@@ -70,5 +70,9 @@ It's the ancient wisdom. A person with calm mind and sharp intellect can acquire
 we want the other person or things to behave as we expect it. you should reverse the process.
 Second Prasanna means brightness, you accepted the things but you shouldn't passive (e.g) you assess and accept your room is not clean, then you should put effort to clean it similarly in any part of your life if you if you see a problem assess and take action. Next Shanthi means calmness when your prasanna don't be too excited, but do things in peacefully.
 
-> You should curd the tendency of the senses to go on their own, When you fix a goal, a plan or program then the senses will not go on their own. 
+> You should curb the tendency of the senses to go on their own, When you fix a goal, a plan or program then the senses will not go on their own. 
 
+## Principle of movement (Charatam, Anu vidhīyate, Harathi)
+The world is keep moving if you stagnate in your life, it will devolve you, so move in your life. The movement can be in either way towards postive object, higher goal or negative object if you move towards the postive object you will evolve otherwise you will devolve.
+
+It's your goal which drives you to right direction, so write down your goal in different areas of life (carrier, health, wealth, relationship). Next the movement has 3 stages the first stage is `Charatam` in this stage you gather or seek information which is relevant to your goal, spend your spare time to read, listen, practise things which will help to achive your goal this will automatically put you in to the next stage (`Anu vidhiyate`) you get inspired with the goal and you double up your effort to achieve your goal. Finally `Harathi` Your entire thinking process (wisdom) will be aligned with your goal. The goal will become a reference to you and every action you do you will think whether this action will help me achieve your goal. 
