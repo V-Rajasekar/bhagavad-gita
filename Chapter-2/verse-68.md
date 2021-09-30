@@ -65,3 +65,10 @@ A sthithapragna person or yogi is always a `nigṛihītāni` he live in the midd
 - A Japanese martial art master asking his student to come to pracise after he wins the world champion.
 
 Never judge a person who was higher developed than you because externally he or she is indulging, but internally he may be in `nigṛihītāni`. or just because a person withdrawn  externally doesn't mean he is spiritual. Story of a saint and a illreputed lady where in the saint mind became disturbed by her activity.After the died the lady went to heaven and the saint went to hell, because the lady thinking about her activyty and practising the spiritual by praying to the god. The saint was externally mediatating but he always thining about the ladies activity.
+
+## _18 Aug 2021_
+
+`nigṛihītāni sarvaśhaḥ tasya prajñā pratiṣhṭhitā`  Once a person moved his center from the finite to infinite(i.e) center connect from outside to the inside then in that person the wisdom is established. When you pull your consciousness from outside world to yourself by doing the sadhana, slowly slowly the prajna (wisdom) is acquired, on this journey of acquiring the wisdom you will connect with the finite.
+
+Look at the life as a baby(wonderment). See your life a mistery like a magic box, set a side your ego(i.e) I know everything and see each and everything
+in your life as wonderment this will make you to follow the quest.

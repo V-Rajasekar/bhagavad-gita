@@ -78,3 +78,5 @@ The world is keep moving if you stagnate in your life, it will devolve you, so m
 It's your goal which drives you to right direction, so write down your goal in different areas of life (carrier, health, wealth, relationship). Next the movement has 3 stages the first stage is `Charatam` in this stage you gather or seek information which is relevant to your goal, spend your spare time to read, listen, practise things which will help to achive your goal this will automatically put you in to the next stage (`Anu vidhiyate`) you get inspired with the goal and you double up your effort to achieve your goal. Finally `Harathi` Your entire thinking process (wisdom) will be aligned with your goal. The goal will become a reference to you and every action you do you will think whether this action will help me achieve your goal. 
 
 The sadhana of `mahā-bāho` look at the good aspect within you, and others around you. 
+
+`Kadavul meaning kada means ellavatrayum kadanthavan, vul ellavatrilum ullavan.`
