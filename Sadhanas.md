@@ -80,3 +80,19 @@ It's your goal which drives you to right direction, so write down your goal in d
 The sadhana of `mahā-bāho` look at the good aspect within you, and others around you. 
 
 `Kadavul meaning kada means ellavatrayum kadanthavan, vul ellavatrilum ullavan.`
+
+> Increase the depth in your life at all level if your dealing with money, sense object, emotional and spirtuality do in full depth.
+
+## The Three Aspects of a Sthithaprajna
+1. Sayami: Complete control over oneself. Related to physical, pranic body aspect master of the senses.
+2. Muneh: Contemplative, being able to constantly be in touch with the higher and the permanent. Also silence, the silence of ones inner self.
+3. Pashyatha: The ability to see the world from the innermost depth. This is at the spiritual level.
+
+#### 3 oct 2021
+Understand the purpose of the sthithaprajna facets. The yogi described the goals in to three the first goal is external goals like worldl objects, person
+like house, car, spouse. The second goal is acquiring skills.The third type of goal is internal goal a transformation goal like you want to become a calm person.
+
+External goal like acquiring objects, once you get that object it will stay with you for a while and go. Here the subject(you) and the object are different no mind influence required here. Second goal acquiring skill and mastering it can be internal & external goal. But the third goal transformation goal here the subject and object is you its an internal transformation and it need mind influence. 
+
+The mind has the tendence to start emulating what ever it admires? what ever it apperciate? If a person moving from one country to another country he starts to admire the culture in that country and changes (e.g) ascent. As you start admiring Sayami, muneh you become the one. Its observing the energy behind this facets. Sthithaprajna is the goal and its a path also.
+

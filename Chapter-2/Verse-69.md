@@ -50,4 +50,6 @@ the unknown area you will get to know the unknown. Don't be thamas being lazy fo
 
 When you increase the awareness there is a danger of you getting involved in that, you can totally involved and enmished in the world. When that happens you have to pull yourself to the center. A yogi can penetrate in to others mind and can find the negatvity, and then he knows how to interact with that person. He knows the negativity but he doesn't allowed his mind to affect those negativity.
 
-`Jagrathi(fully awakend)` and `Nisha(ignorant)` are the two extreme side you should always be at the center that is `sathva` a sathvik person well aware of this center and pulls himself back to the center.
+`Jagrathi(fully awakend)` and `Nisha(ignorant)` are the two extreme side you should always be at the center that is `sathva`  In the first statement to being in the state of Nisha you don't need any effort, but you need effort to become jagra, in the second statement to be in jagra state you don't need any effort, but need effort to become nisha.A sathvik person always maintain the balance between the Jagrath and nisha.
+
+`That in which beings are awake, is night to the sage` what are you caught up in the life? Today there is so superfical, no depth in their greetings, emotion (laugh). You should do eveything with depth. Superficial things are very attractive in the beginning and they get caught up in that.  One has to do the sadhana a self aware exercise to get out of this superfical things, if your ignorant then the growth will not happen.
