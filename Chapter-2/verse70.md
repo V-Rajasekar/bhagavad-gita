@@ -153,5 +153,43 @@ when you join the samdidhram and sadhna you get these three powerful steps numbe
 Sadhana tip- Practice acceptance of people and situations and take the right measures to resolve the problems that occur. 
 Unacceptance or expectations that do not match with reality lead to stress and loss of peace.
 
+__Nov 21, 2021__
 
+A Sthitha Pragnya is like an ocean, all-accepting. Based on our belief systems, we put boundaries around ourselves and accept only those who conform to our beliefs. Spirituality is not a religion, following a certain God or practicing certain beliefs. It is being limitless.
 
+A Mumukshu is someone who is on a quest to get answers to fundamental questions such as the purpose of my birth and death, how did the world get created and is there someone guiding this. The intense desire to be liberated from the finite is Mumukshatva. A sadhak fulfils this desire through Sadhana. In fact, the Mumukshatva will not let a Sadhak sleep until he or she finds answers to these questions. The answers to the questions cannot be got by reading any number of scriptures, that is merely an intellectual pursuit. It is instead an inner journey and a Guru comes into our life to show the way. The guidance provided is at the wavelength of the student (just like a teacher teaches first and third grade students differently although the teacher feels the same towards both of them) and the nature of the guidance sought - physical, emotional, mental, or Infinite. The Master indicates all the worldly benefits that will be obtained through spiritual practice to motivate the student to continue the Sadhana, but only the Sadhak who seeks the Infinite gets the Infinite.
+
+Being all accepting like the Samudra is at the mental level not at the action level. It doesn't mean being passive and influenceable (like Yudisthira during the dice game). It means we assess the qualities of a person clearly but do not judge. By separating the quality from the person, we are able to relate to the other person more and calm our mind and act productively. It is one thing to worry about or be affected by my action, but why be affected by another's action? 
+
+There are three aspects to all-acceptance: 
+Accept the other person as he or she is  
+Accept the objects as it is
+Accept the situation as it is
+
+There is a difference between assess and judge. Assessing someone is assesing the quality if a person has negative quality then first assess their good and bad quality, but don't judge and relate yourself to have a good relationship with that person. When you judge a person then you start complaining, but when you assess and know that person is rude, then you will think about how to talk to this person and have a smooth relationship.
+
+When we accept a person as he or she is, we separate the quality from the person. The negative quality is only like a disease and is not the person itself. We don't hate or judge a person because of a disease, we empathize with them. (While listening to Yogishri, I become aware of a "disease" I have and how I don't want people to judge me as a person based on what I say). Judging a person prevents us from being able to relate to them. Only if we relate, can we assist. Having this attitude leads to unconditional love. With a son, be relatable and friendly, don't give advice. In chapter 12, Krishna lists the gunas of a Bhakta: The first is not hating anybody and the second is being a friend to all!
+
+Sadhana homework: Identify one or two specific instances in each of the above three categories of all-acceptance for me and reflect.
+
+Wish good for another person, but don't try to materialize for another person. You are interfering with their Karma and that soul's agenda and also it can have a negative effect on you. Don't do Sadhana for another person, i.e., don't visualize a benefit for that person during your personal Sadhana. Instead help them through action. Sadhana is a personal practice. Set goals for oneself (which can include my relationship with others) and materialize them through Sadhana. Progress inwardly towards the Infinite. Doing Sadhana benefits seven generations before and after.
+
+__Dec05_2021__
+
+The Sthithapragnya in you is unfolded in three levels, using samudhram (a drop from the ocean)
+1. The first level (drop considering itself as separate from the ocean) is you think you are separate from the infinite. when you're at this level think each and everyone as finite.
+2. Second level(drop considering itself as a part of the ocean)  you consider as a part of the infinite.(I'm yours, a direct relationship with the god)
+3. Third level(drop consider i'm  the ocean) where you become Sthithapragnya
+
+When Lord Rama asked Hanuman how he viewed him, he said: At the physical level, I view me as different from you. At the jiva level, I view me as part of you. At the Atma level, I view us as the same. This is the same philosophy of Dvaita, Vishishtadvaita and Advaita expounded by the self-realized masters, Ramanujacharya, Madhwacharya and Shankaracharya, respectively. They were saying this to different audiences and hence each propounded a certain path. One should practice all three.
+
+when ever you face a challenge let us say somebody insult you do a deep breathing(breath through nose and exhale from mouth) connect with the guru sakthi, the energy of the great master will help you to overcome the situation. When you practise this exercise then you become a state of calm, and peace and choose the positive action. You will get the power to choose the responses.
+
+As the ocean remains unmoved (achala) there are three dimension on achala. achala is the opposite of the chala, the basic nature of chala is 
+trembling, unsteady, frail
+
+1. Achala means free from agitation. Maintaining clamness
+2. It means focus. steady, maintain self improvement.
+3. It means very very strong. When ever something goes wrong outside, immeditely your mind get agitated, you loss you focus, your strength you become chala and start putting effort, the opposite tool available is achala 
+
+You can practise achala only when you formulate goals, create and follow the schedules otherwise the time will pass and your spiritual energy will erode.
