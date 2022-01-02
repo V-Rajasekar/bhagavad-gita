@@ -193,3 +193,51 @@ trembling, unsteady, frail
 3. It means very very strong. When ever something goes wrong outside, immeditely your mind get agitated, you loss you focus, your strength you become chala and start putting effort, the opposite tool available is achala 
 
 You can practise achala only when you formulate goals, create and follow the schedules otherwise the time will pass and your spiritual energy will erode.
+
+__Dec12_2021__
+
+**Three dimensions of achala**
+- Being calm and not agitated
+- Being focused and not fickle minded
+- Being strong and not frail
+
+Peace is one of the most important facet of a stitha prajna, by obtaing peace from within a person tends to get a lot of clarity. But when we talk of peace for now it is just temporary, it may be due to the circumstance or any other reason we may feel peace in a time bound manner. But the great masters have said that it is not that one feels peace in a peaceful situation which determines his spiritual growth, but he is said to be attained peace when he goes through the test if various situation and still be able to retain the peace which he experiences during the meditation. The Yogis called this pratishtam, which means establishment in peace.
+
+Keep doing Sadhana until you get Prathistham (established). The Master gave the wonderful story of Parasurama, the Ansh Avatar of Lord Narayana. Parasurama set about destroying unrighteous kings but found he had very little peace after this. He approached a yogi and asked him to be his guru and show him how to obtain peace.
+The yogi said "I can't be your guru". 
+"Then who"? 
+"Bhagawan Datatreya"!
+Parasurama approached Bhagawan Datatreya and was initiated into several truths including Srividya. Then he meditated and found he was very peaceful. But as soon as he opened his eyes, he found he was distracted. He asked the Bhagawan how to stay connected with the Infinite, the Master said you need to do the Sadhana till you get ***achala pratishtam.***
+
+when your is attached to a object or person an he/she constantly thinking about it is called focus. what is the true test of focus?
+Focus is our ability to place our mind or withdraw it from any object/ situation consciously (by choice).when you channelize your mind concisously to a object or person is called focus, and not allowing the mind run on his own.
+
+when some challenges comes in your life check how strong are you? Have you taken any responsibility and continue to be strong when any challenges comes in your life after taking a responsibility
+
+`kāmā yaṁ praviśhanti sarve
+        sa śhāntim āpnoti na kāma-kāmī`
+
+**How will a kamakami function?**
+The word kamaha means desires and the objects of desire.
+Kamaha means desire and kami means the person who desires.
+We Should be able to differentiate between kama and ichcha.
+Kama comes from agitations and ichcha comes from state of peace.
+If desire doesn't get fulfilled, kamakami will get frustrated. He will become more stressed and lose his peace.
+
+**How does a sthithapragnya function?**
+A sthithapragnya generates desire for functional purposes. 
+Icha come from peace or without disturbing the peace
+He is in a perfect state of peace. He generated thoughts towards an object consciously.
+Whether or not the objects remain with him, he is in a state of peace always.
+If his desire doesn't get fulfilled also, he will not be frustrated because he understands that nothing is permanent and life has to move on. He will see the next best option available.
+ 
+Both these aspects are within us. Some desires are kamaha and some are ichcha.
+To the extent we are agitated our desire is kamaha. To the extent we are peaceful,  our desire is ichcha.
+The whole sadhana is to come out of the clutches of kamaha. We should not become a slave to our desires.
+
+The great masters have said throw away the Kamaha(desires), they doesn't mean the icha shakthi
+
+**How do we master our stress?**
+By converting our kamaha into ichcha.
+If anything is agitating us, we need to do a bit of analysis as to what is the desire that is agitating us.
+Doing sadhana will help us to convert that kamaha to ichcha.
