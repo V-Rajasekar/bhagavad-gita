@@ -238,6 +238,31 @@ The whole sadhana is to come out of the clutches of kamaha. We should not become
 The great masters have said throw away the Kamaha(desires), they doesn't mean the icha shakthi
 
 **How do we master our stress?**
-By converting our kamaha into ichcha.
+The root cause of stress is Kamakami (the desire coming out of agitation) then How do master the stress is
+by converting our kamaha into ichcha.
 If anything is agitating us, we need to do a bit of analysis as to what is the desire that is agitating us.
 Doing sadhana will help us to convert that kamaha to ichcha.
+
+__Dec19_2021__
+
+The path to become a sthithapragna is moving from kamakami towards Sthithapragna. Its same as moving from desirer of object to
+peace. A Kamakami is a slave to desire and objects of desires. A ordinary person experience following things in life sense enjoyment,
+emotions, and desire to acquire worldly things be it a object, person, wealth, name and fame. 
+
+When this desire for sense enjoyment, wealth, name and fame goes beyond your control you became a slave and experience stress and unhappy, so the yardsitck to move to sthithapragna (totally in the state of peace) is how much your peace when the object is taken away. Its not possible from moving unknowing to unknowing state, but its possible to move from knowing (finite) to infinite. Lord Buddha say three things first disease, second old age and finally death this made a quest for self realisation.
+
+Kamakami has force which will make to grave for the desire if they aren't controlled. When Kamaka deterates it becomes `trishna` merely begging for that desire. When we vibrate at a higher frequency than something else, that is attracted to us. If we are at lower frequency, it is repelled. The power of materialization is activated only in one with a pure mind. Otherwise, if all our thoughts materialized (yogis say we get 64,000 thoughts a day), it would cause havoc within ourselves and others.
+
+**Attach, you lose. Detach, you gain**
+
+This is symbolically shown by Lord Vishnu and Goddess Lakshmi. Mahavishnu is the supreme energy of maintenance while Lakshmi is the energy of wealth and abundance. They are partners so much so that Lakshmi is in Vishnu's heart. At the same time Lakshmi is shown as pressing Vishnu's legs while Vishnu is very calm and relaxed. The meaning here is that wealth and abundance automatically comes to assist one who is detached, complete and peaceful. This is an internal state of mind. The right actions (karma) are still required.
+
+Anxiety (kama) about wanting to do the spiritual sadhana regularly is okay because it is in doing the Sadhana that we learn how to convert the Kama to Ichha. So it is okay if Mumukshatva is a kama, it will convert to Ichha through Sadhana.
+
+When setting a goal, be like a child. For example, a child doesn't have vague goals, the child says "I want ice cream". In the case of emotional goals, you can't set S.M.A.R.T goals. That only complicates what is an intuitive process. Be simple, e.g., I want to give love and receive love.
+
+Sadhana: Practise the things which makes you peace, and start reducing the things which is creating lot of stress.
+
+A Sthitha Pragnya is one in whom the wisdom is established. A common pitfall that occurs in the spiritual path is that the ego makes us believe that we are established. That soon leads to stagnation and then downfall, what Lord Krishna refers to later as Yoga Brashtaha. How do we know that the wisdom isn't established in us? In general, we have appreciation for what we don't have. For example, if we have 2-3 BMWs, we don't have a high regard for acquiring another BMW. So when I think it's great that I have figured this out and feel satisfied, then that means that I am not yet at that level because if I were, I wouldn't give that much value to it. For the Sthitha Pragnya, the wisdom is established and there is no concept of "I", so there is no feeling that "I" have achieved it. The puranas and scriptures depict the asuras and rakshasas with power as those who have done tremendous tapas, such as Ravana and Hiranyakashipu, but who have devolved because of their ego. The gods, rakshasas and asuras are all energies within us. However much I progress in the dream, I am still the dreamer. When the wisdom is established, the dreamer becomes the waker. At every step of the spiritual path, proceed with sincerity and put in the effort, and the Guru shakti will guide. The line from Kama Kami to Sthitha Pragnya tells us that we are on the path.
+
+How to differentiate between Kama and Ichha? If the desire arises by itself in an uncontrolled way with the goal of becoming happy by achieving that desire, it is Kama. If the desire is brought about by us for functional reasons while recognizing that we are already happy, then it is Ichha. As we go about in the world and are in midst of situations and experiences which once gave us joy, we may be confused now as to whether our desire is Kama or Ichha. Don't analyze at every point (except if it is an extreme addiction) as that will lead to analysis paralysis, just continue performing the actions, and the personal Sadhana will refine us.
