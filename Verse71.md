@@ -74,7 +74,7 @@ To have a desired effect, the appropriate qualifications are required. That pers
 
 Some words of verse 71 refer to Bhavana and some words refer to Karma. Without craving, without the sense of mineness and without ego refer to Bhavana. Abandoning (uncontrolled) desires and "moving" relate to Karma. Sarvan (all) is related to both Bhavana and Karma.
 
-Since "Puman" (root Pumsaha) is used here, some might mistakenly take it to refer to only male. It is used here because a male is talking to a male but is actually indicative of human kind. When Krishna talks to the gopis in the Bhagavatam about how to give unconditional love, the word for "female" is used there. But in both these cases, the word used is indicative of the wonderful qualities and infinite potential of human beings in general.
+Since "Puman" (root Pumsaha) is used here, some might mistakenly take it to refer to only male. It is used here because a male is talAking to a male but is actually indicative of human kind. When Krishna talks to the gopis in the Bhagavatam about how to give unconditional love, the word for "female" is used there. But in both these cases, the word used is indicative of the wonderful qualities and infinite potential of human beings in general.
 
 There are four dimensions of "Puman". First a male or female who functions mechanically. Then going beyond male or female to a human being who exerts the power to choose every moment things (and also emotions and thoughts!!) which don't agitate us and which give us long-term peace. Only human beings have the power of choice. 
 The third aspect of Puman choosing to expand one's consciousness to merge with the infinite soul, the Paramatma. The way to do this is to diligently follow what the Guru says and perform Sadhana. A Master is one who is not stuck at the consciousness of body, prana, emotions or thoughts but has expanded the consciousness to merge with the Paramatma. 
@@ -83,3 +83,66 @@ The fourth aspect of Puman is having the spirit of being a servant, one who serv
 
 In response to a question on whether a place's culture can be an obstacle to yoga, the Master said choose the positive aspects of every culture, for example the spirit of open-mindedness and hard work in the US.
 
+**_Jan16,2022_**
+
+The word Puman , or for that matter any other word in the scriptures, is by itself not what is significant. It is actually the underlying principle and the depth that is expressed using this word. This is also true of our expressions in general. What matters is not our words and actions per se (for example wishing someone a happy new year) but having the underlying emotion and feeling behind it. This underlying Bhavana is what gives power to our words and actions.
+
+The first dimension of Puman is to function mechanically as a man or woman. The second dimension is to function as a Human Being, exerting the power to choose the positive rather than functioning mechanically. This includes choosing how we express ourselves - our actions, speech and facial expressions, with Bhavana. People respond to the underlying Bhavana not the external expression. Ask your spouse or someone near to you for feedback on your expressions. What I truly express to the world comes back to me.
+
+The third dimension of Puman is our potential to expand our consciousness and merge with the soul or the Infinite within us. When we recognize that the Infinite is within us, we also realize that it the Infinite is also there in Nature and all creatures. This is what Jesus meant when he said that the Kingdom of Heaven is within us.
+ When Buddha said, Look within. 
+
+The fourth dimension of Puman is "Servant", thinking of and acting for Loka Sangraha, the welfare of others, with attitude of service, not helping (which may have ego with it). Do your duties with Seva Bhav, for example at work, thinking of the welfare of the company and of the clients.
+ If we have less ego, we will serve others more as we see God in all. Conversely, if we serve others, that dissolves our ego. Have Shuddha Bhavana, a pure attitude. A yogi is like a new-born child, no manipulations or pretense. 
+
+Sarvan refers to an uncompromising attitude on both the quality and quantity of everything we do. The mind has a tendency to compromise, to jump from place to place and also within the same place (chanchala). Quantity here refers to completing every aspect through Shraddha, the effort to finish completely. It doesn't matter whether others see it or not because how we do it affects our attitude and outcome.
+  My focus should be not on external recognition but to have an uncompromising approach in quality and on completing what I start. Complete your conversations.
+
+Any great achiever in any field would be practicing the Sadhana of Sarvan in that field, whether they call it that or not. Whatever actions they do, they will finish them fully, and their actions put together result in the outcome they have. Similarly, they will act with passion and sincerity, with quality. They will give their heart and soul into whatever they are doing. These two qualities can help me achieve whatever goal I fix. This will make me a powerful person, materialize my goals.
+ 
+Charathi and Sarvan together represent a person moving about in the world and living life in a full way. This is a true spiritual person. Right from childhood, we have been fed this wrong idea that a spiritual person is one who gives up. There were a few yogis who choose to be away for the purpose of research and healing like a scientist who isolates in a laboratory. This is not required for everyone though. A spiritually developed person moves about in the world fully and has an uncompromising attitude in both quality and quantity.
+
+Lord Krishna values Peace as the highest outcome because that is the highest goal of all human beings. But when you get Peace, you get everything below that also.
+
+Close your eyes and imagine a spiritually developed person. Your first thought will be a recluse. In reality, this is a person fully functioning in the world (some may self-isolate for research and healing). Sage Sukhamuni had some ego that his father was the great sage Veda Vyasa. So when he asked his father for spiritual guidance, Vyasa asked him to get it from King Janaka instead. This was a big eye opener for Sukhamuni who had thought Janaka was material and that instead his own position was more exalted.
+
+In response to a question on how to determine if our bhavana is fully pure and if we have completely surrendered to the Guru Shakti, the Master said, "Follow the principle of Bhagawan Dattatreya  - Be a Nitya Sishya". The goal is Infinite and the path is also Infinite, so we should not aim for completion but for continuous improvement. The Master also explained that the very act of asking such a question itself shows that the bhavana is pure.
+
+Sadhana Tips
+
+Sarvan : Identify the roles you play in life. In those roles, what are my actions? Start practicing Sarvan in those actions. As a parent, once you have decided to spend time with your kid, spend quality time. Also, spend the time fully with him. Let quality and quantity be the highest.
+
+Sarvan : Make a list of unfinished tasks and one by one start completing them. As you complete, strike them off by hand. This gives a tremendous sense of fulfilment even if the task is small. You will train your mind to go to the end of something. That ability to complete something you have started is Shraddha.
+
+Charathi : Visualize a spiritually developed person who moves about in the world and who has an uncompromising attitude in both quality and quantity and giving the best in everything, what kind of impact that person will have.
+
+**_Jan 23, 2022_**
+Yaha and Saha are indicative of the qualifications required to not only become a Sthitha Pragnya with infinite peace (Shanthi) but also for worldly success.
+
+The power of Puman is the power to choose. At the lowest level of development, we are not even choosing our actions. They are generated automatically without our awareness or they're triggered in response to an external factor. Our speech is an impulsive reaction to external stimulus, for example an insult. As a Puman , we can tap our inner power to choose our actions and our speech. Our emotions usually arise automatically or in response to some external input. With Sadhana, when we tap the inner power to choose our emotions, we control our emotions which makes us very powerful. With more advanced spiritual practice, the power to even choose our thoughts is opened up within us.
+
+Sarvan is the uncompromising attitude to put in the necessary quantity and quality. Then nothing can prevent you from achieving your goal. What is the block we face from implementing "Sarvan"? It is Tamas, which is ignorance and laziness. The Master can guide us but can't put in the effort for us. Yogishri gave the example of a young cricket aspirant who had come to him for advice. The youth said none of his coaches taught him the subtlety of how to swing the ball but instead only asked him to get up in the morning and do his jogging and exercise. The Master explained that first the Tamas has to be overcome, then Rajas, only then the subtleties of Satva can be taught. So in the beginning, the Master may be stern with the student (to remove the Tamas) and then gentle, and then very subtle.
+
+Complete your experiences to grow spiritually.
+
+The first dimension of Charathi is to graze, consume  - to enjoy. A Yogi enjoys every aspect of his or her life. This is not indulging in certain activities more than others but enjoying everything completely. The mind tends to postpone enjoyment. If we value one activity (for example, interacting with my kid) more than another, then we actually will not be able to enjoy the first activity fully. Enjoy doing the activity as much as the outcome itself. "Kashtapattu seiadhe, Ishtapattu sei"! Since we have to do it, we might as well enjoy it. So don't think of it as "hard work" results in enjoyable outcome, but the enjoyable cause results in enjoyable effect.
+
+The second dimension of `Charathi is to improve one's skills by practicing, performing and observing.` Identify your Swadharma, your unique talents. This is not hard. We fundamentally know what it is or we can figure it out by writing. Practice the skill when you're alone, perform it in the world and learn by observing other experts in that area. Arjuna is the classic example of this which was why we has the best in the world at archery and was adored by his Acharya Drona. The Master gave the wonderful example of how Bhima taught Arjuna how to eat with all five senses and how it's possible even to eat and enjoy in the dark. Always willing to learn and improve his skill, Arjuna learned how to apply this concept to archery so that he could shoot perfectly even in the dark at a target which made a noise.
+
+In response to a question from a Sadhak about feeling guilty when he imagined images of somebody dirtying near a temple, the Master said this was due to impressions formed when observing someone else. Take any external action if possible at the time and recognize what is beyond your control. Doing Sadhana and deep breathing will release the impression.
+
+In response to a question, the Master also expounded on how women continue to be spiritual even during the menstrual cycle. Since they go through pain during this time, it was advised to take some rest, but any activity, including spiritual, can be done.
+
+**_Jan 30, 2022_**
+
+We tend to fall into one of two extremes. Either we are too harsh on ourselves because we don't perform a certain Sadhana properly.This is due to a feeling of guilt when we judge ourselves. Alternatively, we skip doing the Sadhana (e.g. exercise) sometimes  because there is no short term disbenefit and we are not aware of the long term impact of skipping it. In fact, the mind will always gravitate towards something that it's sure will give a positive benefit. The key here is to remember that spiritual evolution is a gradual process and 100% perfection is only given as an ideal so there is a goal in mind. Stay in the middle.
+
+Living a full life means to complete all your experiences with awareness without creating new impressions and by releasing prior impressions, to progress towards the path of merging with the Infinite.
+
+So the `first dimension of Charathi, namely enjoying, means to experience every emotion but not store the impression.` Even Rama cried on hearing about the away of his father. If it is a strong negative emotion, feel the emotion and connect with the Guru Shakti and breathe in through the nose and breathe out through the mouth to release it. Also you can truly enjoy an experience only when you are not caught up with it. Don't suppress emotions or on the other hand be indulgent. Spirituality is not boredom. Spirituality is enjoyment.
+
+`The second dimension of Charathi is to practice, perform and observe.` Doing this converts talent to skill. The block for practicing and performing is tamas. The block for observing is the ego. We have to accept we don't know in order to learn. This does not diminish the respect others have for us, in fact it enhances it. Be like a child without any ego who is continuously observing and learning. Be straightforward.
+
+`The third dimension of Charathi is to initiate action and to respond. `The block in responding is that we didn't do it properly in our first attempt at a response. The Sadhana tip is to look at the various aspects of our life and see if I am initiating action or a series of actions keeping in mind my goals and how I am responding to situations and people. Don't be a complainer. As a Puman, we have the power to choose.
+
+`The fourth dimension is to be engaged, to be busy and productive. `Yogis are always busy and productive. Fulfill your duties and do things that are productive to you and to the world, for loka sangraha. The Sadhana tip is to check how I'm spending the 24 hours in a day.
