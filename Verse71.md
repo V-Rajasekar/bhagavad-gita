@@ -146,3 +146,11 @@ So the `first dimension of Charathi, namely enjoying, means to experience every 
 `The third dimension of Charathi is to initiate action and to respond. `The block in responding is that we didn't do it properly in our first attempt at a response. The Sadhana tip is to look at the various aspects of our life and see if I am initiating action or a series of actions keeping in mind my goals and how I am responding to situations and people. Don't be a complainer. As a Puman, we have the power to choose.
 
 `The fourth dimension is to be engaged, to be busy and productive. `Yogis are always busy and productive. Fulfill your duties and do things that are productive to you and to the world, for loka sangraha. The Sadhana tip is to check how I'm spending the 24 hours in a day.
+
+`Charathi also means to roam - to rest and relax.` This should be practiced only after you have practiced the above four dimensions of Charathi, otherwise it would lead to tamas. When we do practice the other dimensions of Charathi, rest is needed. Rest automatically happens in the beginning of a meditation session. 
+
+`Charathi also means to continue to be - to not get toppled by a development, whether sorrow or challenge or even extreme joy`. We can do this through Purushartha and Sadhana. With regular Sadhana, we come back to a stable state faster. 
+
+Whatever Lord Krishna conveys in the second chapter, he then expounds in detail in the subsequent chapters of the Bhagavad Gita. For example, he tells Arjuna in the fourth chapter, "You have been through many many births".
+
+In response to a question, Yogishri explained that the yogic path is the only path to the Infinite, whatever you may call it. Brahma vicharanam is required at the same as doing duties is required at the same time because that gives a higher goal to our actions, otherwise you are stuck. Karma yoga, Bhakti Yoga and Gnyana Yoga are all to be applied to expand one's consciousness and merge with God. One has to apply whatever is required at a given stage. It is like if you are travelling on a road towards a destination and the road becomes narrow, you should switch from driving a car to a bicycle.

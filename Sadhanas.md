@@ -96,3 +96,16 @@ External goal like acquiring objects, once you get that object it will stay with
 
 The mind has the tendence to start emulating what ever it admires? what ever it apperciate? If a person moving from one country to another country he starts to admire the culture in that country and changes (e.g) ascent. As you start admiring Sayami, muneh you become the one. Its observing the energy behind this facets. Sthithaprajna is the goal and its a path also.
 
+`Charathi` Experiencing the life fully, and knocking off karma.
+
+Charathi means to graze, to consume - to enjoy every experience. How does one "enjoy" a sorrowful experience? Imagine you are eating a sweet and a bitter guard (pavakkai) at the same time. You eat them alternately and enjoy both. Spiritual enjoyment is bringing the bhavana of experiencing the sorrowful experience fully while recognizing that it is meant to be learned from and maturing from that experience.
+
+Charathi means to practice, perform and observe. Understand what you are good at.
+
+Charathi means to act and respond appropriately.
+
+Charathi means to be busy, to lead a purposeful file and break through the spiritual tamas using the power of choice and through Sadhana.
+
+Charathi also means to roam - to rest and relax. This should be practiced only after you have practiced the above four dimensions of Charathi, otherwise it would lead to tamas. When we do practice the other dimensions of Charathi, rest is needed. Rest automatically happens in the beginning of a meditation session. 
+
+Charathi also means to continue to be - to not get toppled by a development, whether sorrow or challenge or even extreme joy. We can do this through Purushartha and Sadhana. With regular Sadhana, we come back to a stable state faster. 
