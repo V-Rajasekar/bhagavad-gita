@@ -154,3 +154,19 @@ So the `first dimension of Charathi, namely enjoying, means to experience every 
 Whatever Lord Krishna conveys in the second chapter, he then expounds in detail in the subsequent chapters of the Bhagavad Gita. For example, he tells Arjuna in the fourth chapter, "You have been through many many births".
 
 In response to a question, Yogishri explained that the yogic path is the only path to the Infinite, whatever you may call it. Brahma vicharanam is required at the same as doing duties is required at the same time because that gives a higher goal to our actions, otherwise you are stuck. Karma yoga, Bhakti Yoga and Gnyana Yoga are all to be applied to expand one's consciousness and merge with God. One has to apply whatever is required at a given stage. It is like if you are travelling on a road towards a destination and the road becomes narrow, you should switch from driving a car to a bicycle.
+
+The first four dimensions of Charathi are about action while the fifth and sixth are about attitude. The fifth and sixth are meaningless unless you practice the first four. Also, one should not practice only one dimension to the exclusion of others. It is okay to be inspired by one more than others. 
+
+The fifth dimension is to roam, to relax. The sixth is to "continue", to not be toppled. People committing suicide is an extreme step, but this results from a series of smaller such steps of letting go and not facing the challenge and continuing. Not persevering even in small things is considered spiritual suicide.
+
+We should strive to be in a state of balance between the Action and Rest dimensions of Charathi. 
+
+All of us are born with spiritual tamas. We overcome this spiritual tamas through Purushartha or the power of choice. How do we know we are in a state of spiritual tamas? Check if you are in one two extreme states: We are only in action without any rest. Or only in rest and giving justification without any action.
+
+Leading a full life means following the principles of Charathi. Being a human being is an amazing thing. Lord Krishna refers to the wisdom later as Raja Vidya, the royal knowledge. "You are on the Royal path", said Yogishri.
+
+As we go about our lives every day we get drained of energy, not only physical energy but also mentally. This verse contains secrets revealed by the yogis on how to, in fact, reverse the process and increase our energy using `Nisprihaha`.
+
+`Nisprihaha` means you act without craving. `Sprihaha` or craving is the extreme version of desire powered by a strong force. It is similar to Thrishna. Kama degenerates to Sprihaha. Craving is extreme longing or a yearning for a thing or a person, for example, my child. I am unhappy without it and even when I get it am worried because of fear of losing it. Two signs of craving a thing are: (i) we are agitated without and with it, and (ii) we show a destructive tendency (e.g., gossiping) related to that thing
+
+Devas are the positive energy or tendencies within you and asura is the negative tendencies within us and who wins depending on who is fed more. Ravana lost all the benefit of his spiritual tapas because of his craving for Sita and was provoked by Surpanaka. Diridrashtra had craving for his kingdom and his son. Duryodhana had a craving for his power. Karna had a craving for name and fame. Yudhishtira had a craving for the dice but then he got over it.
