@@ -183,3 +183,67 @@ The second dimension of `Sprihaha is envy`. The hidden aspect of `this dimension
 If we don't water the Sprihaha, it will wither away. How to not water the Sprihaha? Don't encourage it and don't suppress it. Suppression is like a spring which can come up with force after compression. What to do instead? Be aware of the emotion. Connect with the Guru Shakti and request help. Breathe through nose and out through mouth. Focusing on the breathing keeps us distanced us from the emotion so we can look at it objectively. This is a great method devised by the Yogis. For a strong negative emotion, bring about an intention to release it at the beginning of the next Yoga Sankirtan Sadhana.
 
 `Nirahankara means without the ego and Nirmama is without sense of mineness`. Aham here is the conditioned or finite I and not the aham in aham Brahmasmi. Mama is Sanskrit possessive form of "aham". So the aham leads to mama. Ego refers to not only feeling superior but also feeling inferior, anything related to being centered around myself.
+
+`Part 11 Mar 6, 2022`
+
+prihaha literally means envy. But it also refers to arrogance. Envy and arrogance are unnatural qualities that arise because I compare myself with others. Naturality is our true state. Being natural is being undisturbed. If we are completely natural, we merge with the Infinite. The more artificial we are, the farther we move away from the Infinite. If an intoxicated person offers us 1 million, we will tell him, let's talk tomorrow. That's because we realize he isn't his natural self now. If we have nice car but don't live near anyone, there would be no envy or arrogance. Hence these unnatural qualities arise from comparison with others. Craving or jealousy or arrogance aren't natural qualities. We have acquired those because of conditioning over long time. Just like an iron piece that is covered by dirt doesn't respond to a magnet, we are in artificial state when we are conditioned. 
+
+`Nisprihaha` is being without envy or arrogance. It is good to be inspired by somebody better than us in something and want to acquire the good quality they have. Likewise, if you see somebody with less, we can be grateful for what we have and see how we can serve that person. So the Sadhana tip is Don't Compare. Appeal to the Higher.
+
+Nirahankara - The entire wisdom of the scriptures is in this word.
+
+Aham is I. When Aham expands, we merge with the Infinite. When the "I" is conditioned by physical body, by the mind and its emotions, and by the intellect, it produces the ego. Ahankara is the feeling that the I is the doer. Brahmakara is recognizing that the Brahman is the doer.
+
+The mind plays tricks on us by thinking: "I" am going to become self-realized. The "I" has to go first.
+
+The Master gave a wonderful story from the Yoga Vashishta where a Queen who is a Sthitha Pragnya goes about her duties as a queen without any fuss and without anyone including the king knowing that she was self-realized. The king has a deep quest to learn more about purifying himself and renounces everything and sets out to the forest. The queen meets him there in disguise as a yogi and explains to him that even though he thinks he has renounced everything, he hasn't left his ego as he still has the sense of I. The yogi gives him a series of empowerments resulting in his enlightenment. The queen quietly goes back to the palace. The the king realizes that what he needed to renounce was his ego and not the kingdom and goes back and serves as king. A true Sanyasi is not one who renounces the world but renounces the ego. That's why it's impossible to identify who a Sthitha Pragnya is from merely external actions.
+
+Ahankara is the feeling that the I is the doer. People mistakenly assume that being spiritual means the "kara" (actions) should stop, so they retain the Aham and leave out the Kara. The purpose of Charathi is to act fully in the world and complete our experiences.
+
+Nirahankara should be understood as "Nir Aham" kara.  Remove the feeling of Aham and continue to work. 
+
+Do without being the doer. Focus on the action rather than on the doer. This incidentally also makes you more productive.
+
+Those who focus on getting a spritual image don't do their duties and instead focus on doing something different from the norm, and are considered "gurus". A true Master is natural and focuses on quality not quantity. Adi Shankara had only about 14 disciples. His teachings became famous because he received instructions to spread this ancient wisdom and hence traveled far and wide.
+
+The Nirahankara Sadhana tip provided by Yogishri is to objectively observe how my life is centered around the I.
+
+
+
+
+`Part 12 Mar 13, 2022`
+
+I need to develop the Bhavana of seeking guidance from the Higher with true humility. The ego is an obstacle to developing the Bhavana to dissolving the ego.
+
+Dissolving the ego means expanding the Aham to merge with the Infinite.
+
+The first dimension of Kara is doer: Be a doer without a sense of doership.
+
+Another meaning of Kara is Lord. Our true consciousness can be the Lord or the "conditioned I" can become the Lord and we become the slave.
+
+Another dimension of Kara is determination. When Kara is associated with the ego then it becomes stubbornness - a reluctance to remove the negative despite advice from others. Ravana got guidance from his wife and his brothers and was still stubborn.
+
+Lord Krishna had no ego when he went to his Guru Sandeepani and was able to learn the 64 Sciences in 64 days.
+
+The Sadhana tip is to observe the play of the ego in everything we "receive" and do (act, speak, feel and think). Do this like a game and don't look for solutions.
+
+One should not have the intention to kill. Unintentionally hurting organisms need not cause guilt.
+
+If you intentionally did something wrong then at the end of the next Yoga Sankirtan, ask forgiveness from the person in your mind and convey unconditional love.
+
+` 20 Mar 2022`
+
+`Nirahankaraha` – the state of No EGO is the ultimate goal in life!  Every sadhana practice- yoga sankirtan, Sunday sessions, any other sadhana tip given are all aimed at achieving this ultimate goal of Nirhankaraha.
+
+Sadhana can give us both worldly benefits and spiritual evolution. If our ego dominates our personality then the benefits would be restricted to external, worldly benefits as in the case of Ravana – a great devotee of Shiva, who had done extensive tapas and Sadhana but had attained only the worldly benefits – in terms of wealth, power etc, but not evolved spiritually. 
+
+Functioning with or without ego refers to the internal attitude with which every action is performed.  All activities that are performed with the conditioned I as the centre are Ego centric activities, the Aham centred activities.
+
+All activities that are performed with the Infinite as the centre are the activities that are not egocentric, without the claim of doership, it is a state of no ego.It is not possible for us to directly step into a state of No ego, the I in us is conditioned by the body, the emotions and thoughts. Very gradually, through consistent Sadhana, this conditioned I has to expand and reach the state of no conditioning to become one with the Infinite. 
+
+Karaha- refers to Lord- If the ego is the Lord then we become a slave to the ego, all our thoughts and actions will be egocentric.  One of the symptoms to find out if our ego is dominating our personality is to check whether we are obsessed by the desire to control others.  Kamsa and Hiranyakasubu are typical examples of being slaves to their egos.  When Kamsa/ Ego rules our personality, we experience a great deal of stress and tension, whereas when the Ego is reduced and Krishna rules, we experience the sweetness- (Mathuram) of peace and happiness.
+Karaha also refers to stubbornness. When ego dominates, there is a lot of stubbornness, refusing to change the negative and choosing the right path. Eg Ravana. But as one progresses spiritually, this stubbornness is used as an advantage, it becomes determination.   Determination gives the power to be consistent in one’s effort to evolve spiritually.
+
+Karaha also means power or strength.  When Aham or Ego dominates, one gains power externally. In spirituality, power or strength refers to the gain of inner power and inner strength.  Prahalada points out that Hiranyakasibu had a lot of external wealth and power but he was bereft of the inner wealth -  of peace and happiness. Duryodhana chose the world’s most powerful army battalion offered by Krishna, (External power) only to lose to Arjuna who chose plain Krishna who would not even wield any weapon in the war.  Krishna, helped Arjuna realize his Inner strength- the strength that comes from connecting with the Infinite.
+
+Karaha also means a heap of snow.  Snow is soft and pure a state that is similar to the state of a person who is attuned to the Brahman in him.  The same snow could become a cover of the Infinite Self within, when one is attuned to the I centred Ego.  As we expand our consciousness this cover of snow can be removed and the mountain that lies under, which is the Infinite would be revealed and its power will manifest in all areas of one’s life.   
