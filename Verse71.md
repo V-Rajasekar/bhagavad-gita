@@ -247,3 +247,63 @@ Karaha also refers to stubbornness. When ego dominates, there is a lot of stubbo
 Karaha also means power or strength.  When Aham or Ego dominates, one gains power externally. In spirituality, power or strength refers to the gain of inner power and inner strength.  Prahalada points out that Hiranyakasibu had a lot of external wealth and power but he was bereft of the inner wealth -  of peace and happiness. Duryodhana chose the world’s most powerful army battalion offered by Krishna, (External power) only to lose to Arjuna who chose plain Krishna who would not even wield any weapon in the war.  Krishna, helped Arjuna realize his Inner strength- the strength that comes from connecting with the Infinite.
 
 Karaha also means a heap of snow.  Snow is soft and pure a state that is similar to the state of a person who is attuned to the Brahman in him.  The same snow could become a cover of the Infinite Self within, when one is attuned to the I centred Ego.  As we expand our consciousness this cover of snow can be removed and the mountain that lies under, which is the Infinite would be revealed and its power will manifest in all areas of one’s life.   
+
+`Part 14 Mar 27,2022`
+
+The meaning of giving up the ego seems simple,  i.e., be humble.  But Nirahankara is actually the following.
+
+The true I or consciousness is conditioned by the physical body, the mind with the emotions and intellect with its thoughts. Together this produces the ego. "Niraham" is expanding the consciousness which removes this conditioning while still doing "Kara" or actions.
+
+Humility and gratitude are prescribed as Sadhana so that the ego does not corrupt us as we progress and others praise us. This is why true Yogis do not show their powers.
+
+We might have the fear about what will happen if we are not associated with the body, mind or thoughts. This is similar to a dreamer when told about the Waker.
+
+To attain the state of Brahmakaraka I have to drop off my ego, emotions, thoughts when we ask what is good? you say not being bad, so they both are intertwingled that is also a limit, but the state of brahmakaraka is beyond the limit. As the dreamer cannot realize the waker as long as he is in dream, similarly you cannot be brahmakaraha you cannot persive the god as long as you
+use the finite instruments the body, mind and thoughts, then with what equipments one can realize the god is only by expanding the I, consciousness. 
+
+The Master gave a beautiful way to treat Sanskrit grammar as Sadhana.
+Aham comes from Sanskrit root Asmath and refers to the subject or the individual soul. Maam (to me), maya (by me), mahyam (to me), math (from me), mama (mine), mayi (in me) are all declensions of the root word but also indicate how we are more and more fixated on the I. 
+
+`Mama` refers to the sense of ownership and is the most extreme of these as we become slave to an external object. Have possessions and enjoy them but don't become a slave to them. Yudhishtira was a master at this. His conch was called Anantavijaya because he was never unhappy at losing something, even his kingdom, because he didn't have the sense of ownership, so he was always a winner.
+
+The Sadhana of `*Nirmamaha"` is to be a guest in this world not an owner, just like you are a guest in your friend's house and enjoy everything but know it's not yours. The fear of death is due to fear of the unknown and fear of losing what we have - possessions, family, friends. So whenever you have stress, work backwards, you have the sense of ownership of an object. Become a user instead. In general, if you don't have the feeling of ownership and think like a user, then there is no feeling of loss, no failure. Everything belongs to the Higher. Nirmamaha doesn't mean giving up your possessions, it means treating them as something to be used temporarily.
+
+The Sadhana tip is to recall that you are using objects in life rather than owning them, while still performing your obligatory duties with those objects.
+
+`Part 15, 03 April`
+
+The principles in Verse 71 are sacred principles, divine principles!  Soak yourself in the principles of Nisprihaha , Nirahankara and Nirmamaha and thus practice Satsang to progress to the Infinite! The meaning of Satsang as the association with good people is just one facet of Satsang. In reality, Satsang is the association with anything that is divine and uplifting including, in particular, these divine principles. Adi Shankara said associate with Govinda! Our consciousness is uplifted due to the Sunday discourse and then drops due to what we see, read and hear during the week. So be aware of what you inputs you are getting. Negative emotions increase the ego. Daily Yoga Sankirtan Sadhana raises the consciousness. Watch 5-10 minutes of the Gita discourse every now and then to again get that upliftment. 
+
+A salt is concentrated when by itself but dissolves when associated with water. Our ego is like the salt and these divine principle are like the water. If we merely intellectually examine this and say "Yes, the ego or salt is here and the water is there and mixing the two will dissolve the salt", we will not progress spiritually. Instead, let yourself be soaked in the divine principles and consciousness will expand and the ego will dissolve. Usually you are inspired by one or two principles, for example, the Nirmama principle of "you are the user and not the owner". Reflect on the principle you are inspired by. 
+
+It is not the I who is progressing to the Infinite but these divine principles that dissolve my ego.
+
+The ego is produced from the I that has been conditioned by the body, mind and intellect and puts forth negative energy as it grows. The ego develops many branches. One cannot just cut off the ego, so clip its branches, for example false humility or spiritual superiority, as they grow.
+
+All spiritual practice has the ultimate goal of Nirahankara. For example in bhakti yoga you bow down with palms pressed against each other or touching the right palm to the heart area. In Jnana yoga you always surrender to the guru first. In Hata yoga you use the Vishnu mudra alternate nostril breathing where the finger position is similar to the blowing the conch. This cuts off the ego at the very beginning because it reminds us of the fact that Vishnu uses the Conch to breathe Prana to the entire universe including to the embryo as expounded by Sage Kapila to his mother in the Kapila Gita.
+
+The possessiveness dimension of Nirmama is more extreme than the dimension of the sense of ownership because you are also affecting somebody else. Also, any type of possessiveness causes slavery which results in stress to both me and the other person.
+
+True spirituality is being completely free. This was expounded and demonstrated by Swami Rama Thirtha when he visited the U.S. in early 1900s.
+
+Sadhana tip for Nirmama: See who you are possessive about.
+
+Muruga's killing of Soorapadman repeatedly is symbolic of defeating the ego through infinite patience.
+
+The ego will place blocks in doing your spiritual practice. Follow "Guror vakhyam param dharmam".
+
+`Part 16, Apr 10, 2022`
+
+Understanding the principle/fundamentals is more important while doing an activity. All titans in their area understand the fundamentals and followed the 
+steps to be a successful person in their fields. Nirahankara (Without Ego) and Nirmamaha (Without possession) are the two pillars of all sadhana and to develop in the spirituality.
+
+Every yoga practice is also associated with fundamental principles. The fundamental principles behind practice never change and they have existed for a long time. The practice related to sadana when combined with the fundamental principles of spirituality makes it meaningful. In jnyana yoga, the depth becomes essential and not breath of knowledge. Similarly, in bakthi yoga bavana becomes essential. Mechanical performance of sadana without understanding basic principles lead to stunted spiritual growth or no growth at all. 
+
+Possessiveness lead to control of other because of mamakaram(Its mine, she/he mine). The Egos can be of the following types:
+1. `Thamasic` means ignorance/darkness/laziness/ extreme stubbornness[unwillingness to change the negative quality]. When expressions of ego become highly pronounced and unmanageable mamakaraha becomes extreme asura’s quality becomes active within you. 
+
+Harms anyone to get what they want; goodness completely buried..vindictive nature.unwilling to take guidance because of the insecurity and fear of changing conquer the asura within you to evolve in spirituality. 
+
+2. `Rajasick` means stubborn in their belief, actions. passion/workaholic/stressed/pride..ego here was called `rakshasas` as highly stressed and in a state of confusion. They may be righteous normally but to achieve what they want they may resort to unrighteousness too. May or maynot take guidance..eg.Ravana
+   
+3. `Sathvik` are amenable to spiritual. Relative goodness/ relative purity..called deva and devi…ego well under control, and you are righteous , gravitates towards positive things in life..and at least ensures you don't devolve in spirituality. ..surrenders and takes guidance to evolve as you value spirituality. One Day you have to transcend and go beyond satvik ego, by doing sadhna, become a sthita pragnya.
