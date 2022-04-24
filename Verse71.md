@@ -304,6 +304,37 @@ Possessiveness lead to control of other because of mamakaram(Its mine, she/he mi
 
 Harms anyone to get what they want; goodness completely buried..vindictive nature.unwilling to take guidance because of the insecurity and fear of changing conquer the asura within you to evolve in spirituality. 
 
-2. `Rajasick` means stubborn in their belief, actions. passion/workaholic/stressed/pride..ego here was called `rakshasas` as highly stressed and in a state of confusion. They may be righteous normally but to achieve what they want they may resort to unrighteousness too. May or maynot take guidance..eg.Ravana
+
+2. `Rajasick` means stubborn in their belief, actions. passion/workaholic/stressed/pride..ego here was called `rakshasas` as highly stressed and in a state of confusion. They may be righteous normally but to achieve what they want they may resort to unrighteousness too. May or maynot take guidance..eg.Ravana.Tries to increase his wealth, but he always compares with others, what the society things about himself? He will never be happy with what he have.
+
    
 3. `Sathvik` are amenable to spiritual. Relative goodness/ relative purity..called deva and devi…ego well under control, and you are righteous , gravitates towards positive things in life..and at least ensures you don't devolve in spirituality. ..surrenders and takes guidance to evolve as you value spirituality. One Day you have to transcend and go beyond satvik ego, by doing sadhna, become a sthita pragnya.
+
+`April 17, 2022`
+
+`vihāya kāmān` Abandon all desire. We have seen how the kamaka gradiate when this three type of ego arises. 
+
+`The asuric ego` will produce `sprihaha` when the kamaha is totally out of control. It will give uncontrolled desire and it will give the tendency of destroying other happiness and snatch there wealth and want everything himself. Do you have the tendency of robining others wealth like money, name, fame and effort ? then its the asuric ego.Tries to reduce another person wealth.
+
+`Rakshasik ego` Its also same an uncontrolled desires.When a person has rajashik ego he will try to acquire more, but still will be unhappy.He will put effort to acquire it, but when there is an obstacle he will try to acquire unrighteously. Ravana had the rajashik ego to have sita eventhough he has everything.
+
+`Sathvik ego` Controlls the kamaha and convert the kamaha to itcha(controlled desire). A satvik(pure) person has learned the technique to convert the kamaha into icha the desire comes under his control. When it comes under your control he choose the right choice to fullfill that itcha. The benevolent/refined ego
+pushs inspires more and more sadhana and by doing so the sathvik ego dissolves and he becomes a sthithapragna.
+
+`April 24. 2022`
+
+Learned a vital principal of `nirahankāraḥ`. It means ego less, but this principal shouldn't make you thamasik when you have to perform your duty, or when you have to standingup for yourself meaning when your leading a team and you team member aren't performing well then you can tell them politely for the first time, but when they are not correcting themself then you have to be stern on them. When someone is attacking not merely physically, but verbally then you have to speak for yourself, in those time you can't use this principle that i'm ego less and won't take any action. 
+
+Lord Rama, Krishna understand this principles very well, and they balanced there ego well. When Jarasanthan was constantly attaching Madhura he shifted the city to Dwaraka, when balarama told people will think we are scared and we are running away, Krishna told right now its not a good time to go for a war as they are powerful, we have to wait for the right time to strike. Its a tactickle move if people thinks we are running out of fear its there problem. Also when pandavas has to go for sanyas he let them do, but in that time he told Dharma that he has to standup for due rights. He was also the mastermind behind the mahabharta  against unrighteousness.
+
+`nirahankarah` shouldn't block you from being passive and blocking you to perform your duty, standup for yourself to defend against attack or what is due to oneself.
+
+Then checking our desires whether they are Asuric (sprahaha) Rakshasic (Uncontrolled desire) Satwik (Iccha)-- 
+
+Satwik/Devika- We need to analyse ourselves and ensures that we have satwik desires where we don't compare ourselves with any one but we desire things for our own functional needs and try and full fill them and complete our experience. 
+
+In case of rakshasic / Rajasic Desire we always compare ourselves with others and try to get more than others and we feel that we are unhappy now and by getting that particular object we will become happy. In the whole process we completely stress ourselves out. 
+
+In case of asuric desire we wish to be happy and ensure that others dont get their due and destroy other person.
+
+We also saw our ego in terms of our happiness where we wish to happy by destroying others which is asuric. Rajasic- where we get the feeeling that by obtaing a particular object we will become happy and satwik -where we experienxce the infinite peace and happines and do not try to cause any harm to anyone but go on improving ourselves and complete all our experience. 
