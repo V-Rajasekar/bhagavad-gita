@@ -323,18 +323,78 @@ pushs inspires more and more sadhana and by doing so the sathvik ego dissolves a
 
 `April 24. 2022`
 
-Learned a vital principal of `nirahankāraḥ`. It means ego less, but this principal shouldn't make you thamasik when you have to perform your duty, or when you have to standingup for yourself meaning when your leading a team and you team member aren't performing well then you can tell them politely for the first time, but when they are not correcting themself then you have to be stern on them. When someone is attacking not merely physically, but verbally then you have to speak for yourself, in those time you can't use this principle that i'm ego less and won't take any action. 
 
-Lord Rama, Krishna understand this principles very well, and they balanced there ego well. When Jarasanthan was constantly attaching Madhura he shifted the city to Dwaraka, when balarama told people will think we are scared and we are running away, Krishna told right now its not a good time to go for a war as they are powerful, we have to wait for the right time to strike. Its a tactickle move if people thinks we are running out of fear its there problem. Also when pandavas has to go for sanyas he let them do, but in that time he told Dharma that he has to standup for due rights. He was also the mastermind behind the mahabharta  against unrighteousness.
+This verse has the entire wisdom of the Bhagavad Gita. `Nirahankara` refers to attitude not to action.
 
-`nirahankarah` shouldn't block you from being passive and blocking you to perform your duty, standup for yourself to defend against attack or what is due to oneself.
+- Speak up for yourself. Defend yourself. During the 12-year Vanavasa of the Pandavas, Lord Krishna told Yudhishtara to stop being passive and defend themselves against unrighteousness. That doesn't mean you have to literally fight every time. The same Krishna told Balarama that it was wise for them to retreat from Mathura to Dwarka when attacked by the mighty Jarasandha. When the shocked Balarama asked him what will others think of the rulers running away, Krishna said, "What does it matter what others think? This is a tactical action to protect the people. Now is the not the time to fight as the enemy is more powerful". Here Krishna showed how to have perfect Nirahankara. Don't personalize it, take the appropriate action. 
+- When Lord Rama went to the forest, because he was a Kshatriya, he protected others against unrighteousness. He wasn't passive. 
+- A boss who finds that his subordinates aren't working shouldn't be passive or personalize it. With a calm mind, he should warn them first gently and, if necessary, sternly.Don't personalize it but take the necessary action.
 
-Then checking our desires whether they are Asuric (sprahaha) Rakshasic (Uncontrolled desire) Satwik (Iccha)-- 
+The mind thinks I am unhappy which results in an uncontrolled desire. Sprihaha is extreme craving. Kama is uncontrolled desire. Ichha is wilful desire. It all begins with comparison.
 
-Satwik/Devika- We need to analyse ourselves and ensures that we have satwik desires where we don't compare ourselves with any one but we desire things for our own functional needs and try and full fill them and complete our experience. 
+- With `Sprihaha which goes with asuric ego`, I compare myself to others and `want 100% for myself and don't want others to get anything.`
+- With `Kama shown by rakshashik ego`, I compare myself to others and put in any effort necessary to have more than others. The rakshashik ego doesn't let you complete experiences because there is always `somebody else to compare` with or another quality of the same person to compare with.
 
-In case of rakshasic / Rajasic Desire we always compare ourselves with others and try to get more than others and we feel that we are unhappy now and by getting that particular object we will become happy. In the whole process we completely stress ourselves out. 
+- With `Saathvik ego`, I `don't compare and instead invoke Ichha shakti to fulfil a wilful desire` and complete my experiences.
 
-In case of asuric desire we wish to be happy and ensure that others dont get their due and destroy other person.
+Set goals. How to determine goals? This is based on the experiences I want to have as a Jivatma. My ultimate goal is to complete all experiences.
 
-We also saw our ego in terms of our happiness where we wish to happy by destroying others which is asuric. Rajasic- where we get the feeeling that by obtaing a particular object we will become happy and satwik -where we experienxce the infinite peace and happines and do not try to cause any harm to anyone but go on improving ourselves and complete all our experience. 
+Frustrated desire leads to anger either on yourself or on other person. Unfulfilled desire leads to shokham (sorrow) which left unchecked will lead to depression. In that case, become aware and bring in the intention during next Yoga Sankirtan sadhana to release it after invoking Guru Shakti.
+
+Sadhana homework:
+Analyze your tendency. Are you comparing? If so, do you want more than others? That is kama. Do you want everything for yourself and others to have nothing? That is sprihaha. Now work backwards. If it is sprihaha, it arises from asuric ego. If kama, it arises from rakshashik ego. Then check your happiness. If you are happy only if you get something and others don't. That is asuric ego. If you are happy only if you have it more than others. That is rakshashik ego. If you are happy as is in something and are doing it for functional purposes, that is Saatvik ego.
+
+`May 1, 2022 `
+The Guru Shakti also manifests as the Upa Gurus which are the various experiences of life which all occur to teach me something. As I learn from the experiences, my Karma keeps getting burned up. If I don't learn, life keeps providing experiences and opportunities to learn from them in this and subsequent births. Bhagawan Dattratreya was the greatest of Yogis because he would learn from every experience.
+
+This verse is extremely important because the desires of the mind today dictate our thoughts, emotions and actions. When I have a rakshashik ego in a certain aspect, then that results in an uncontrolled desire (kama). My mind thinks if I get that I will become happy. With the rakshashik ego, I wish to have more of the object of desire than others do. When the uncontrolled desire becomes excessive, it leads to craving (sprihaha) which is resulting from an asuric ego, a feeling that others should not get that object and I should get it for me to be happy. I start putting unrealistic conditions on the world for my unhappiness, for example a world event that is completely outside my control.  
+
+Vihaya kaman doesn't mean to drop all desires. It means to drop the dependence on desires for my happiness, that is putting a condition on something external for me to be happy. The more conditions we put, the less happy we are. This is true of a parent. Even though our intentions are good, if our desires for the child are out of our control, we put a lot of conditions on how the child should behave for our happiness. For example, expecting a child (or spouse) to be "spiritual". So, even a good desire which is uncontrolled can be negative. When you try to "help" someone by imposing conditions, you are stifling that person. Rather do Sadhana yourself and live by example.
+
+With a Deivik ego, one recognizes that there are two types of happiness - temporary and permanent. Through Sadhana, we convert the kama to Ichha, that is a wilful desire. We fulfil that wilful desire recognizing that this will give us temporary happiness. The permanent happiness is when we merge with the Infinite.
+
+Sadhana homework: Examine different aspects of my life (relationships, career, wealth etc.) and identify what percent happiness I have in each. I will notice that the areas in which I put more conditions for my happiness, I am less happy. Similarly, when I have less conditions, I will be more happy.
+
+`May 8, 2022`
+
+Do not use this wisdom to judge others. It is meant for introspection. Obstacles come in two forms during the spiritual journey, or for that matter during the pursuit of any goal. One is the obstacle that causes unhappiness and is more obvious. The other type of obstacle is more subtle and provides immediate pleasure but long-term pain. This obstacle is a distraction that comes in disguise. The mind believes that the other thing will provide happiness and pulls the rest of you along with it. Judging others, such as saying the other person has asuric or rakshashik ego, is an example of this second type of obstacle in our path. The ego through the mind will give excuses such as "I am only analyzing the psychology of the other person". Watch out! Why don't you start with analyzing your own psychology? 
+
+**The asuric ego, rakshashik ego and deivic ego are gunas and present in all of us in different proportions.** It's like being good or tall. There is no absolute, it is all relative. Likewise, we can't say one person is completely rajasik (rakshahik ego), tamasik (asuric ego) or Saatvik (deivic ego). Yudhishtira was generally Saatvik but when playing dice his asuric ego surfaced. When he lost to Karna during the war, his rakshashik ego surface and he taunted Arjuna that he was a coward as he hadn't killed Karna yet. Even Kamsa exhibited Saatvik quality just before being killed by Krishna when he surrendered his ego. 
+
+A thinker said, **"There is enough good in the worst of us and enough bad in the best of us for us to not worry about the rest of us".*
+*
+The asuric ego is delusive and makes me believe that something totally outside my control will give me happiness. The rakshashik ego makes me chase instant gratification which gives long-term pain. The saatvik ego makes me realize I am already happy. The three types of ego also apply to how we view ourselves. When my asuric ego is exhibited, I destroy myself. With my rakshashik ego, I judge myself and find fault with myself. With deivic ego, I am balanced.
+
+## Vihaaya Kaamaan (bandon uncontrolled desires)
+
+Regarding the `Sadhana of Vihaaya Kaamaan`, how does one abandon uncontrolled desires? Follow the three dimensions of Vihaaya . 
+
+`The first dimension  is when ever a negative force is manifesting within you inspite of that withstanding that and continuing your goal or choosen path, putting your effort continously`. It doesn't matter where your or in which level if you put consistent conscious effort using your will power in the positive direction.what is the choice your making or you using your will power to go in the positive direction or take away by the negative force.
+
+When a strong negative emotion comes, do deep breathing - in through the nose and out through the mouth.
+
+`The second dimension is disregarding, overlooking and setting aside the negative force`. As we progress, you get more power  we will be able to set aside the negative force and focus on the effort.
+
+when your moods are not under your control you will be in the mercy of your mind, when the moods are under your control now the mind will be under your control.
+
+`The third dimension is detachment or disassociation from the negative force.` When we have made further progress, we will find that `we are mentally detached from this external negative thoughts and energy`.
+
+If you want to succeed in your goal practise the Vihaaya Kaamaan.
+
+`May 15, 2022`
+When we are faced with challenges, negativities, mood swings, we should do the rasa sadhana. It means do the yoga sankitan
+sadhana w.r.t to the moode whether its sorrow, angry, disappointment, joy do it sorrowfully, joyfully,so what ever the mood may be apply the vihaaya kaaman principle overcome the negative force with your willings and put  effort to practise the 
+Sadhana regularly. The Yoga sankitan sadhana will slowly slowly guide 
+
+## A freedom is not doing what you like, but freedom is liking what you do
+
+When you simply doing what you like, where is the freedom your actually become a slave to your desires, whereas when you train yourself to like what you do that is when you gained the freedom that level mastering is possible by practising the Vihaaya kaaman.
+
+From the verse `śhāntim adhigachchhati` if you follow the principles you will attain the peace and adhigachchhati comes from adhi gamanam it means mastering the dimensions are
+1. `Acquiring` putting the effort to acquire the wisdom, its not acquiring the information
+2. `Obtaining` once you put the effort obtain the wisdom
+3. `Studying` making an intension study of one own.
+4. `Learning` The whole exercise to be done in the spirit of learning. learn from all the experience. 
+
+You will learn the art of being peaceful irrespective of the situtation, incase of any shaking incident or moment immeditely come back to the balanced position peaceful.
+
