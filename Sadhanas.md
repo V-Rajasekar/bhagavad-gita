@@ -109,3 +109,10 @@ Charathi means to be busy, to lead a purposeful file and break through the spiri
 Charathi also means to roam - to rest and relax. This should be practiced only after you have practiced the above four dimensions of Charathi, otherwise it would lead to tamas. When we do practice the other dimensions of Charathi, rest is needed. Rest automatically happens in the beginning of a meditation session. 
 
 Charathi also means to continue to be - to not get toppled by a development, whether sorrow or challenge or even extreme joy. We can do this through Purushartha and Sadhana. With regular Sadhana, we come back to a stable state faster. 
+
+Do factual assertions or authoritative statement
+Meaning when you make an assertions or authoritative statement the focus should be on the message is right, and not "I am right". Always make factual assertions. 
+It is important to be assertive but when doing so, emphasize only the message. A great thinker said, "The only way to win an argument is to avoid it."
+
+An egoless assertion makes the listener calm and energize, on the other way if its based on "I'm right" people will be afraid to discuss with you, they think your not open minded.
+
