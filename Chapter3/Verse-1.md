@@ -46,3 +46,71 @@ and a common person goes with the opinion without the facts. A master has no bia
 
 When you relate people you project your opinion on that person and you judge the person based on the opinion. Its a human Psychology as a sadhaka don't come to 
 a conclusion based on your opinion, you have to collect the facts before judging the person.
+
+`Aug 14, 2022`
+We should be thankful to Arjuna since it is only because of his questions that we hear the divine answers from Lord Krishna. If there was no Arjuna uvacha, there would be no Bhagawan Uvacha. So the student is also praised in the scriptures. Narayana tells Lakshmi that his devotees are the most important because it is their devotion that gives him his strength. (Great concept, hard for me to understand!)
+
+In the entire first chapter, Arjuna is "complaining". But this chapter is very important to me as it indicates the state of my mind. In the second chapter, Arjuna seeks guidance and Krishna responds.
+
+
+The more a student seeks, the more the wisdom flows from the Master. Advice should always be taken not given.
+
+Arjuna said:
+If you consider knowledge to be superior to action, O Janardana,
+then why do you engage me in this terrible action, O Kesava.
+
+Different Masters expounded different aspects of the Infinite depending on what was needed by humanity at that place and time. Jesus expounded Universal Love. Buddha expounded Meditation. Krishna expounded unconditional love to the Gopis, karma yoga to Arjuna and gnyana yoga to his friend Uddhava in the Uddhava Gita. People later formed religions around the sayings of specific masters, but the Master had no so-called religion in mind, just the Infinite.
+
+The principle being the same, the application can vary. A Sadhak observed the Master when he gave advice to two students separately. He was suprised to hear the Master encourage one student to interact more socially and the second student to introspect more. But the apparently different guidance was based on the same principle - Balance. 
+
+This whole verse by Arjuna indicates a series of misunderstandings on his part.
+
+Matha This means opinion. But Krishna isn't providing his opinion, he just stated the facts in the previous chapter.
+
+Superior  Nothing is inherently superior or inferior. Something could be subtler and purer, for example, Yoga Sankirtan sadhana.
+
+Arjuna was projecting his weakness onto Krishna by thinking he was stating that knowledge is superior to action. Nowhere did Krishna say that.
+
+Niyoj : Forcing - Krishna is not forcing Arjuna to do anything. Forcing somebody to do something that will remove the power of the resulting action. Understand the value of the action. If we do something willingly, out of choice, that has a lot of power. Make the choice.
+
+Ghora Karma : Arjuna thought this was a terrible action. No action by itself is good or bad, it is the Bhavana that matters. In this case, the was needed to establish righteousness. Avatara Ithi - Avatar Avatars appear on Earth to establish righteousness. Krishna had tried to negotiate earlier with the Kauravas. But Duryodhana had said he wouldn't give even enough land to the Pandavas to bury them. 
+
+Although Arjuna was confused in his question, his intent was good. It is the Bhavana behind any action that matters. Yogishri gave the example of how the act of cutting another person's stomach is good if it's being done by a surgeon.
+
+Sadhana Tip:
+See how we are perceiving the world in each new experience. That indicates the state of our mind. 
+
+Janardana stands for Protector of People. 
+Kesava is destroyer of Keshi, the demon.
+The usage of these contradictory names for Krishna by Arjuna is also indicative of his confused state of mind.
+
+Sadhana Tip:
+Make the choice willingly, that gives power.
+
+Sadhana
+
+- No action persa is good or bad. It is the bhavana which is matter When your are doing any action check your bhavana.
+- Anything forced on you does not have an effect so your mind should not be pressurized. Whenever you feel pressurized you will not give it your best so if some things is good for your but you feel pressurized to do it should you drop it no try to understand and gain the knowledge and understand the value of the good things in life.
+- 
+
+`Aug 21, 2022`
+**Uvacha**
+I am expressing myself continuously through my speech, silence, action, inaction, emotions and thoughts. Yogis also express themselves through meditation by radiating energy. Whenever Arjuna was speaking in the previous chapters, Krishna was continuing to provide healing quietly.
+
+The flowers blooming, the nightingale singing and the waterfalls are all expressions of the Infinite. The Bhagavad Gita is an expression of the Infinite. We are given the power to choose. Through our choices, become an instrument through which the Infinite expresses.
+
+We absorb who and what we admire. So admire the deep principles conveyed in the Gita.
+
+**Sadhana Tip**
+Become aware of your expressions and refine your expressions.
+
+Arjuna's questions themselves become more refined through the Gita. In the first chapter, he was bemoaning. In the second chapter, he was asking questions sincerely but speaking high philosophy that wasn't practical for him. He is in the middle of a battlefield and asking how a Sthitha Pragnya walks and talks. When a house is on fire, there is no point in merely asking about the difference between Atman and Brahman. In the third chapter, Arjuna is asking a more practical question, "What should I do now?" 
+
+**Janardhana**
+The deeper meaning of Janardhana: Jana = People  and Ardhana = Suffering.
+One who causes suffering!! When a person strays from the positive, the Lord causes "suffering" to bring the person back on track. So in reality, Janardhana is also Protector of People.
+
+Arjuna's mind is so confused that he thinks Lord Krishna is forcing him. A Master's words and actions will be "forceful" but he will never force.
+
+Achhutha, a name of the Lord, refers to who doesn't fall, one who is established in the Infinite.
+ 
