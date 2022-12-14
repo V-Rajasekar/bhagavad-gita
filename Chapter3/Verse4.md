@@ -41,3 +41,10 @@ Put in effort. Don't expect things for free. In a later verse, Krishna says, "On
 
 Sadhana homework:
 **Reflect on what actions you have been delaying.**
+
+[Dec 4, 2022](https://www.youtube.com/watch?v=7nKpINEucE8)
+
+Bhagavat Gita starts in the GuruKshetra battle field an eternal wisdom given in the battlefield, how to act in a battlefield. A life is a battle field in each and every moment of our lifes there is always an internal and external challenges. One who is open to the challenges will be happy and peaceful in the life. We have to practise the sadhana to face the challenges the best of best things happens in your life when you face the challenges and not by simple ignoring the challenges. One such incident happened in the last world cu match 0n 2022
+between IND vs PAK. India was no where near to achieve the target, because of Virat Kholi his tremendous batting gave us that victory.
+
+In life not move away from the challenges face the challenges take responsibilities.
