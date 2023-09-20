@@ -13,3 +13,10 @@ what can the physical body can give you ? can it give infinite happinees? You ha
    You have to do side by side that is you take care of yourself (mind, body,wealth, carrier) and serve others.
    The true is not for the weak people its for strong people.</p>
 4. `Adiyathi unnathi`
+
+Karma is action, also reaction and the deeper impression formed and stored in the deeper layer of your personality.
+
+
+
+
+
